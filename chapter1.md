@@ -235,3 +235,258 @@ individus aux traits majoritairement européens.
 Si Brunet ne montrait nulle trace de fatique et d’agacement, son ventre creux
 et sa sainte horreur de l’attente dans une foule bruyante l’indisposait. Et il
 n’était point le seul.
+
+Mais comme s’il avait lu dans les pensées du grand brun — où avait-il lui aussi
+senti quelque bruit caverneux émaner de son ventre — Roches expliqua :
+
+— Je vais aller chercher le professeur Ōtori, après quoi nous irons déjeuner.
+
+— Ce n’est pas la peine, monsieur Roches !
+
+Une voix à l’accent saccadé venait de se faire entendre, tandis qu’un homme
+aux traits asiatiques mais à l’allure occidentale approchait du groupe
+d’officiers.
+
+— Professeur Ōtori ! Bonjour ! salua Roches, l’air enjoué.
+
+— Que d’honneurs ! Monsieur Ōtori convient très bien ; c’est vous les
+professeurs, n’est-ce pas ?
+
+Ōtori était un jeune Japonais dans la fleur de l’âge qui n’avait pas tardé à
+se familiariser avec les us et coutumes de l’Occident. Il revêtait, au même
+titre que les commerçants qu’ils avaient croisés, des vêtements classieux, qui
+lui donnaient un air d’homme bourgeois et occupé. Les cernes sous ses yeux
+ne mentaient pas.
+
+— Je vous propose de manger tous ensemble. Après, je vous accompagnerai aux
+auberges que j’ai fait réserver pour vous. J’espère que vous ne souffrez pas de
+maux de dos, car les étrangers ont parfois du mal avec les futons !
+
+— Les futons ? demanda l’un des officiers.
+
+— On les appelle comme ça au Japon. Des matelas à même le sol et… Vous verrez.
+Pas d’inquiétude, on a fait préparer des chambres occidentales dans vos futurs
+appartements, lorsque nous irons à Sendai.
+
+— Merveilleux. dit Roches. Je propose que nous déjeunions ensemble, histoire
+que certains d’entre vous fassent connaissance avec monsieur Ōtori ici présent.
+
+Sans plus attendre, le groupe se dirigeait au refectoire, où ils pouvaient
+apercevoir de la main d’œuvre japonaise travailler en cuisine. Les femmes
+portaient des tabliers à l’occidentale. Brunet avait vraiment le sentiment
+que le Japon n’avait pas une minute à perdre pour se hisser au rang des
+empires de l’Ouest.
+
+Ils firent la queue docilement jusqu’à être servis, où ils pouvaient choisir
+entre de la nourriture locale ou de la cuisine française, pour ceux qui ne
+voulaient pas trop être dépaysés.
+
+— Je vais me laisser tenter par les plâts locaux. dit un des sous-officiers de
+la mission devant Brunet. Ce pourrait être mon dernier repas après tout.
+
+Cet officier n’était autre que François Arthur Fortant. Il avait le bas du 
+visage recouvert d’une barbe qu’il avait peiné à tailler le long de la
+traversée jusqu’à Yokohama. Il regardait par-dessus son épaule, jetant un
+regard à Brunet qui lui accorda un sourire pincé.
+
+— Ça va ? demanda Fortant.
+
+— Oui… J’ai grand faim.
+
+— Espérons que je sois repu.
+
+— Espérons.
+
+Ils se turent, recevant leur repas et allant s’attabler sur une longue rangée
+où leurs homologues avaient déjà pris place. Ōtori et Roches étaient assis
+face à face. Tous avaient opté pour le repas japonais.
+
+Brunet prit place, déposant soigneusement son plâteau et prenant soin de ne pas
+s’affaler sur de banc en bois verni afin de ne pas perturber le confort de
+ses collègues. Fortant prit place en face de lui, rejoint par les autres
+membres de la mission française.
+
+— On a tous choisi un menu japonais ! Le contraire m’eût étonné ! lança un
+collègue qui venait s’attabler à côté de Fortant.
+
+— Monsieur Ōtori a opté pour la purée de pommes de terres, dit un autre
+collègue qui prenait place aux côtés de Brunet, vous pensez que c’est par
+plaisir de partager notre culture ou bien parce que c’est une valeur sûre ?
+
+Un petit rire parcourut l’assistance. Brunet ne répondit que par un sourire
+aimable, le regard plissant alors qu’il avalait une cuillérée de soupe.
+
+C’était délicieux
+
+— Ça va, Brunet ? demanda le voisin de Fortant.
+
+— Affamé et fatigué. Et toi, mon cher Marlin ?
+
+— Tout pareil ! Sus aux bonnes victuailles, comme disait ma tante.
+
+Marlin, qui était assis à la droite de Fortant, était un des membres de la
+mission militaire française. Il avait été désigné comme sous-instructeur pour
+l’infanterie. C’était un homme de petite taille, un peu trappus, les cheveux
+bouclés et à la barbe en guidon. Il avait des yeux proéminents et ses cernes
+lui donnaient un air de chien battu, quoique amicale. Il accordait un sourire
+bienveillant à l’attention du grand brun.
+
+Quant au voisin de gauche de Brunet, qui ressemblait étrangement à Marlin, il
+ne s’agissait nul autre que de Bouffier. Il était, au même titre que Marlin,
+désigné en tant que sous-instructeur pour l’infanterie.
+
+— J’appréhende assez la suite, confia Bouffier. Quand je me dis que l’éducation
+de l’armée du Shōgun dépend de nous, j’ai le sentiment que de lourdes
+responsabilités pèsent sur nos épaules.
+— C’est vrai, répondit Marlin. Les clans du Sud prennent leurs propres
+précautions pour se mettre à jour également. Il fricottent avec la racaille
+britannique.
+
+À nouveau un rire léger les réchauffait, même Brunet qui fut surpris de cette
+remarque quand bien même le sous-officier Marlin secouait la tête, comme pour
+se dédouaner de cette remarque. Tous avaient l’air nerveux, et tout moyen de
+faire retomber la pression était bienvenu. Ils avaient même attiré des regards
+envieux sur la droite. Certains écoutaient d’une oreille distraite.
+
+Brunet porta un morceau de poisson à sa bouche, qu’il mâcha longtemps pour en
+apprécier les arômes salés. C’était délicieux et ce repas convivial lui
+redonnait un peu du poil de la bête. Il s’éclaircit la voix pour s’adresser
+en ces termes, pour le moins didactique, à ses comparses.
+
+— Les clans du Sud n’ont jamais été très accointés avec le Shōgun, précisa
+Brunet. Ce sont même eux qui ont perdu à la bataille décisive de Sekigahara
+à la toute fin du seizième siècle. Il est guère étonnant qu’ils profitent
+désormais de la position de faiblesse du Shōgun pour essayer de le renverser…
+
+— … Et tout cela en essayant de faire pression sur le Mikado pour qu’il 
+ordonne au Shōgun de démissionner ? demanda Fortant.
+
+— C’est cela même, confirma Brunet.
+
+— Ces clans doivent être redoutables et déterminés pour qu’on ait besoin de
+nous, remarqua Bouffier.
+
+Marlin s’éclaircit à son tour la gorge avant d’établir un contact visuel avec
+ses voisins et de les inciter à se rapprocher afin de leur délivrer quelque
+confidence qui saurait être fâcheuse :
+
+— C’est l’ordre naturel des choses. Le Shõgun est un dictateur militaire et il
+n’est malheureusement pas possible de contenter tout le monde. On a choisi
+notre camp.
+
+— C’est faux, objecta Marlin, cela aurait pu être les clans du Sud, on serait
+ici même à la place des Britanniques. Tout ceci dépend de son altesse impériale
+Napoléon III qui voit un intérêt à ce que le Shōgun garde les plein pouvoirs.
+
+— Tu… Tu as raison, répondit Marlin en haussant les épaules, mais pourquoi
+son altesse impériale voudrait…
+
+Brunet leva la main en geste d’objection, la mine désolée.
+
+— Mes braves gaillards, dit-il d’un ton caverneux, j’ai bien peur qu’il ne
+faille trop nous occuper de ce qui ne nous regarde pas. Je répondrai toutefois
+à la question avant d’avorter la discussion : si le Japon bascule sous
+l’autorité suprême de l’Empereur, il deviendra donc un Empire. Ce qui signifie
+conquêtes. Est-ce dans les intérêts des Britanniques ou des Hollandais ? Je
+l’ignore. Je pense qu’il s’agit de raisons économiques tout comme pour nous,
+même si les Britanniques ont préférer badiner avec les proimpéralistes qu’avec
+le Shōgun. Libre à vous de deviner pourquoi, mais je suis au regret de vous
+informer que moins nous évoquerons ce sujet, si palpitant soit-il, mieux cela
+vaudra pour nous tous…
+
+Il avait presque envie de leur demander pardon dans cet élan de sagesse. Il
+était évident qu’au vu de sa réponse, Brunet avait, lui aussi, réfléchi à la
+question. Mais c’était s’écarter de ce pourquoi on l’avait missionné : former
+et instruire les troupes du Shōgun à l’artillerie et aux méthodes diverses et
+variées de l’armée française.
+
+Le reste du repas se déroula dans un silence relatif. Tous se retrouvèrent
+dehors, au devant de l’ambassade, où Roches, s’il ne fit des adieux aux
+camarades de la mission, s’adressait à eux en des termes élogieux.
+
+— Capitaine, messieurs les officiers, sous-officiers et instructeurs, c’est
+avec le cœur lourd que nous nous séparons. Reposez-vous bien jusqu’à demain et
+faîtes bon voyage jusqu’à Sendaï. Pour la France.
+
+Chaque membre de la mission se vit accorder une chaleureuse poignée de main
+et un sourire chaleureux de la part de Roches, qui avait le contact facile et
+semblait, au plus profond de lui-même, soulagé que le capitaine et ses hommes
+soient enfin arrivés à bon port.
+
+Tous suivirent Ōtori parmi les ruelles de Yokohama, jusqu’à une allée
+exclusivement composée d’auberges traditionnelles sur deux étages. Pour la
+plupart d’entre elles, elles disposaient d’un balcon sur lequel on voyait des
+cloisons en bambou, avec quelques portes coulissantes dont la paroi était faite
+de papier de riz aux nuances chamois.
+
+Ce spectacle fit sourire Brunet. En effet, Yokohama, si elle prenait des airs
+occidentaux de grande ville portuaire, elle avait gardé par certains endroits
+un charme de ville traditionnelle. Il sourit, notamment à Ōtori qui avait
+sans conteste deviné que les Français apprécieraient la découverte de sa propre
+culture ; après tout, les camarades français avaient tous choisis de manger à
+la japonaise.
+
+On s’égaya quelque peu parmi les collégues de la mission. Certains trépignaient
+d’impatience à l’idée de dormir dans une auberge traditionnelle japonaise.
+Brunet tenta tant bien que mal d’intimer à ses comparses de faire montre d’un
+peu plus de retenue ; pour lui, l’image qu’il véhiculait était importante, et
+il préférait embrasser les us et coutumes locauy que d’affirmer les siens.
+
+La vérité, c’est qu’il était exténué et à la recherche de calme. Ce qu’Ōtori
+comprit en croisant le regard du grand brun. Tous deux échangèrent un sourire
+alors que le nippon demanda de se déchausser au dehors avant de pénétrer dans
+l’auberge.
+
+Brunet pénétra à l’intérieur, se baissant alors qu’il passait sous des
+banderolles marron qui arboraient des sinogrammes blancs — sans doute le nom
+de l’auberge. Mais plus il se rapprochait de ce qui serait sa chambre pour ce
+soir, plus il devenait imperméable aux discussions alentour et insensible aux
+détails qui faisait le charme de cette auberge. Ses collègues, il les regardait
+avec l’œil d’un homme aimant qui partagerait des choses intenses avec eux.
+
+Mais pour l’heure, il avait envie de s’isoler. La journée avait été difficile,
+et le retour à la terre ferme semblait le troubler. Ou peut-être était-ce le
+poids de la mission dans une contrée inconnue qui le travaillait tant.
+
+— Mon capitaine, fit Brunet alors qu’il s’avançait vers Chanoine, si vous
+n’avez plus besoin de mes services, j’aimerais me reposer jusqu’à demain.
+— Pas de bile, mon grand… La traversée s’est passée dans les meilleures
+conditions, mais le plus dur reste à venir. Repose-toi. On se regroupe devant
+l’auberge demain au petit matin.
+
+Chanoine gratifia discrètement Brunet d’une tape sur l’avant bras, tandis que
+ce dernier sourit franchement à son supérieur et aux autres. Avant d’être mené
+à sa chambre, il se présenta à Ōtori en ces termes, articulant pour que le
+japonais boive chacune des paroles de l’officier :
+
+— M. Ōtori, merci infiniment pour votre accueil et pour vous être occupés de
+nous. Je vais prendre congé. Il me tarde de travailler avec vous.
+
+Le nippon sourit poliment à Brunet. Lui-même était marqué par la fatigue.
+
+— Avec plaisir, répondit-il. Monsieur…
+— Brunet. Jules Brunet.
+
+Après une nouvelle secousse de leur poigne, ils se lachèrent la main tandis
+qu’un hôte invita Brunet et d’autres à le suivre. On invita le grand brun à
+pénétrer dans une chambre sommaire, où il dû courber l’échine pour pénétrer à
+l’intérieur. Il remercia dans la langue locale son interlocuteur, s’inclinant
+maladroitement comme un occidental qui ne connaissait en rien l’étiquette
+nippone, et fit coulisser la porte en papier de riz jusqu’à se retrouver en
+totale intimité.
+
+Il soupira longuement. Cela lui fit un bien fou, tandis qu’il alla s’installer
+dans une lenteur consciencieuse au point de ne pas vouloir faire de bruit, se
+délestant de ses lourds habits d’officier. Puis il se mit à l’aise,
+s’allongeant sur le dos, le regard égaré sur le plafond en bois sombre.
+
+Il faisait encore jour, mais l’officier n’avait pas la force de sortir avec
+ses collègues pour profiter de quelque quartier libre avant le grand départ
+pour la ville de Sendai.
+
+Alors, assailli de moult pensées sur l’issue de son entreprise et de la mission
+tout entière, il ferma les yeux et la digestion du repas du midi l’aida à
+trouver un sommeil plus que bienvenu.
+
+Avant que chacun ne fut invité à être conduit dans la chambre qui serait
+sienne
