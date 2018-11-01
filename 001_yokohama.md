@@ -404,20 +404,22 @@ Le reste du repas se déroula dans un silence relatif. Tous se retrouvèrent
 dehors, au devant de l’ambassade, où Roches, s’il ne fit des adieux aux
 camarades de la mission, s’adressait à eux en des termes élogieux.
 
-— Capitaine, messieurs les officiers, sous-officiers et instructeurs, c’est
-avec le cœur lourd que nous nous séparons. Reposez-vous bien jusqu’à demain et
-faîtes bon voyage jusqu’à Sendaï. Pour la France.
+— Capitaine, messieurs les officiers, sous-officiers et instructeurs
+reposez-vous bien jusqu’à demain. Nous partons à Sendai dès la première heure,
+où nous visiterons la caserne dans laquelle vous passerez le plus clair de
+votre temps.
 
 Chaque membre de la mission se vit accorder une chaleureuse poignée de main
 et un sourire chaleureux de la part de Roches, qui avait le contact facile et
 semblait, au plus profond de lui-même, soulagé que le capitaine et ses hommes
-soient enfin arrivés à bon port.
+soient enfin arrivés à bon port. Confiant, il s’en retourna dans le bâtiment
+de l’ambassade.
 
-Tous suivirent Ōtori parmi les ruelles de Yokohama, jusqu’à une allée
-exclusivement composée d’auberges traditionnelles sur deux étages. Pour la
-plupart d’entre elles, elles disposaient d’un balcon sur lequel on voyait des
-cloisons en bambou, avec quelques portes coulissantes dont la paroi était faite
-de papier de riz aux nuances chamois.
+Chanoine et ses hommes suivirent Ōtori parmi les ruelles de Yokohama, jusqu’à
+une allée exclusivement composée d’auberges traditionnelles sur deux étages.
+Pour la plupart d’entre elles, elles disposaient d’un balcon sur lequel on
+voyait des cloisons en bambou, avec quelques portes coulissantes dont la paroi
+était faite de papier de riz aux nuances chamois.
 
 Ce spectacle fit sourire Brunet. En effet, Yokohama, si elle prenait des airs
 occidentaux de grande ville portuaire, elle avait gardé par certains endroits
@@ -450,6 +452,7 @@ poids de la mission dans une contrée inconnue qui le travaillait tant.
 
 — Mon capitaine, fit Brunet alors qu’il s’avançait vers Chanoine, si vous
 n’avez plus besoin de mes services, j’aimerais me reposer jusqu’à demain.
+
 — Pas de bile, mon grand… La traversée s’est passée dans les meilleures
 conditions, mais le plus dur reste à venir. Repose-toi. On se regroupe devant
 l’auberge demain au petit matin.
@@ -465,6 +468,7 @@ nous. Je vais prendre congé. Il me tarde de travailler avec vous.
 Le nippon sourit poliment à Brunet. Lui-même était marqué par la fatigue.
 
 — Avec plaisir, répondit-il. Monsieur…
+
 — Brunet. Jules Brunet.
 
 Après une nouvelle secousse de leur poigne, ils se lachèrent la main tandis
