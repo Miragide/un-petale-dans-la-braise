@@ -118,3 +118,10 @@ fonctionne ; qu’on œuvre tous ensemble dans la paix, il fallait éduquer cett
 caste guerrière qu’était celle des samouraïs. C’est là que le Shōgun, après
 sa victoire sur les clans du Sud il y a plus de deux siècles, a unifié le Japon
 en un système féodal strict, tel qu’il pourrait se désagréger aujourd’hui…
+
+Si le reste du déjeuner se déroula dans le silence après les paroles éloquentes
+de Ōtori. elles n’en restèrent pas moins inspirantes pour Brunet.
+
+Le reste de la journée était studieux et, le soir, au lieu de s’autoriser
+quelque activité sociale avec ses camarades, il dessinait et apprenait le
+japonais.
