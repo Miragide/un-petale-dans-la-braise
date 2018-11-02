@@ -53,9 +53,9 @@ de manière générale, les femmes japonaise excellaient pour décrypter le lang
 corporel et les non-dits.
 
 Elle insista, le sourire d’autant plus radieux et, alors qu’elle s’approchait
-de Brunet, celui-ci se rendit compte qu’il mesurait bien deux têtes de plus
-qu’elle. Il tendit une main pareille à une palme à côté de celle de la jeune
-femme.
+de Brunet, celui-ci, ôtant son képi par étiquette, se rendit compte qu’il
+mesurait bien deux têtes de plus qu’elle. Il tendit une main pareille à une
+palme à côté de celle de la jeune femme.
 
 — M… Merci beaucoup. balbutia-t-il dans la langue locale.
 
@@ -85,4 +85,69 @@ d’où ?
 — Impressionnant. Comment le saviez-vous ?
 
 — Je crois avoir déjà croisé des hommes qui vous ressemblaient et ils parlaient
-une langue
+une langue que d’autres japonais disaient être le français.
+
+— Ah ! Me voilà démasqué ! dit Brunet sur le ton de l’humour.
+
+Elle riait aux éclats tandis qu’il se régalait de ce spectacle, les yeux
+plissés et le sourire étiré sous sa moustache. Instinctivement, ils se mirent
+à marché côte à côte, lentement, appréciant la vue côtière bordée de cerisiers.
+
+— Votre pays est magnifique.
+
+— Merci beaucoup ! Et la France ?
+
+— La France… Elle diffère. Beaucoup de beaux bâtiments dans les villes
+principales. Avec des rues pavés. Marseille par exemple. Une très belle ville
+portuaire. C’est de là qu’on est parti. Puis, on est arrivé à Yokohama.
+
+— Depuis quand ?
+
+— Seulement trois mois.
+
+— C’est peu… Je gage que vous saurez découvrir d’autres charmes de notre pays,
+Seigneur Brunet.
+
+— Seigneur ? Monsieur, je vous prie !
+
+Elle rit à nouveau, consciente que l’étranger s’était un tant soi peu renseigné
+sur les titres japonais. Elle aimait se jouer de lui. Il la fascinait.
+
+— Vous ressemblez à un samouraï, monsieur Brunet.
+
+— Allons. Je ne suis qu’un humble serviteur de mon pays, amateur d’arts,
+correctement éduqué, peut-être, mais n’en faîtes point trop !
+
+— Vous dégagez… Une énergie.
+
+— Une énergie ?
+
+— Oui.
+
+Elle n’expliqua pas davantage le fond de sa pensée, alors qu’elle se fendit
+d’un nouveau rire coupable en le voyant cogiter.
+
+Lui allait fondre.
+
+— C’est… Difficile à expliquer, poursuivit Tomi. Mais vous avez une bonne tête
+et un cœur grand. Vous comprendrez.
+
+— Ah, heu… Eh bien. Merci.
+
+Ils continuèrent de marcher tranquillement jusqu’à un carrefour. Ils comprirent
+par leurs regards qu’ils devaient se séparer.
+
+— Je vais paraître dérangeante, mais je dois vous quitter.
+
+— Non, non, ce n’est rien… Eh bien… À bientôt, mademoiselle Tomi qui vend des
+étoffes de soie.
+
+— À bientôt ! rit-elle alors qu’elle accorda un sourire radieux à Brunet.
+
+Ils s’éloignèrent. Elle se retournait de temps en temps, le même sourire aux
+lèvres, s’arrêtant un instant pour l’observer marcher.
+
+Lui ne se retournait pas. Le joli minois de la douce Tomi était imprimé sur
+ses rétines. Et son sang bouait. Mais…
+
+— Le devoir avant tout.
