@@ -153,7 +153,7 @@ court et ses oreilles étaient petites. Au même titre que Brunet, il portait lk
 
 — Peu… Très peu.
 
-— Ōtori sensei m’a dit que vous étiez polyglothe. Est-ce vrai ?
+— Ōtori sensei m’a dit que vous étiez polyglote. Est-ce vrai ?
 
 Brunet marqua un silence. Il venait de comprendre pourquoi le jeune homme lui
 avait automatiquement accordé le titre de professeur, comme il avait accordé
@@ -173,3 +173,90 @@ plaisait déjà. Pourvu que cet enthousiasme continuât, pensait-il.
 
 — Je suis lieutenant d’artillerie. Vous allez m’apprendre à utiliser les
 canons ? Sans ça, nous ne pourrons nous défendre contre les clans du Sud.
+
+— Je suis là pour ça, en effet. L’armée française possède une expertise dans
+l’utilisation d’artillerie lourde aussi bien dans l’érection de fortifications.
+Je pourrais vous en parler des heures.
+
+— Peut-être que vous pouvez me dire « tu » ?
+
+— C’est-à-dire ?
+
+— Vous êtes mon aîné et mon professeur. C’est moi qui vous dois le respect,
+professeur ! Et si vous me parlez aussi poliment, j’ai le sentiment d’être
+votre égal. Enfin, c’est la coutume japonaise…
+
+— Il nous faut garder un certain protocole dans nos échanges. Je veux bien te
+tutoyer, à condition que cela ne sorte du cadre privé.
+
+— Merci, professeur !
+
+Aussi futile pût paraître la discussion pour quelque oreille indiscrète, Brunet
+ne voyait pas les choses de cette manière. Si Monsieur Ōtori serait, avec les
+autres instructeurs français, le principal interlocuteur pour communiquer avec
+les hautes instances japonaises, le jeune Kintaro semblait être un
+interlocuteur privilégié pour immerger Brunet dans cette culture qui
+faisait naître en lui d’innombrables interrogations.
+
+Mais il fallait faire montre de patience, en particulier face à Kintaro. Tous
+deux commençaient à marcher côte à côte dans l’immense cour où les élèves
+japonais vaquaient à leurs occupations personnelles ; pour certains il
+s’aqissait de se détendre ; pour d’autres, de profiter du temps libre afin de
+s’instruire.
+
+— Tu saurais me conseiller, demanda Brunet, quelque manuel ou quelque méthode
+pour que je puisse apprendre votre langue ?
+
+— Suivez-moi, répondit promptement le jeune homme.
+
+Les deux comparses marchèrent en dehors de la cour pour entrer dans l’un des
+bâtiments annexes. Celui-ci était en fait sur deux étages, plutôt grand. Et
+l’entrée débouchait automatiquement sur une bibliothèque sommaire.
+
+— Les manuels de correspondance entre le japonais et le français, ça n’est pas
+ce qui manque, précisa Kintaro. Je n’ai pas croisé un seul de nos hommes qui
+ne soit curieux à l’idée d’apprendre le français.
+
+— Remarquable, avoua Brunet.
+
+Il sourit à Kintaro qui lui tendit respectueusement, de ses deux mains, un
+ouvrage dont la couverture était imprimée de sinogrammes mais aussi de
+caractères romain.
+
+Le jeune homme avait légèrement courbé le dos et penché le buste comme le
+voulait l’étiquette. Ce que Brunet avait imité dans quelque automatisme
+diplomate. Il recevait l’ouvrage dans ses mains alors que Kintaro se permit
+un petit rire.
+
+— Pardon… Vous êtes intéressant, professeur Brunet.
+
+— Je t’en prie, jeune homme.
+
+Le grand brun sourit, tandis qu’il feuilletait l’ouvrage aux pages jaunies,
+le sourire aux lèvres alors qu’il s’arrêtait à une page au hasard.
+
+— C’est excellent, ajouta-t-il.
+
+— N’est-ce pas ! Je dois m’absenter. Ravi de faire votre connaissance, monsieur
+Brunet !
+
+Kintaro ne demanda pas son reste. Il laissa Brunet seule dans l’enceinte
+annexe. L’officier profita d’un instant de répis pour observer la quiétude des
+lieux et lorgner un regard curieux sur la reliure de multiples ouvrages. Il
+brûlait d’envie de comprendre la signification de ces idéogrammes qui,
+disait-on, provenait de la langue chinoise.
+
+À croire que les japonais aimaient la complexité.
+
+Le reste de la journée se déroula dans le calme. On présenta à Brunet et aux
+autres instructeurs leur chambre. Chacune, tant à la grande surprise et à la
+déception — dissimulée — des Français, possédait un style à l’occidentale :
+un lit avec un sommier, une armoire en bois sombre et un petit bureau. Un
+ensemble sobre qui rappelait son pays natal à Brunet.
+
+Il profita un maximum de son temps libre pour commencer à imprimer dans sa
+mémoire les syllabaires de base utilisés par les japonais. Le reste du temps,
+il le passa à faire bonne chère auprès de ses futurs élèves et de ses
+officiers.
+
+Mais l’appel de l’étude et de la découverte était grand.
