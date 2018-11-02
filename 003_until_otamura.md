@@ -43,7 +43,6 @@ que par votre langue. Certains parlent même très bien le français.
 — Merveilleux, se permit Chanoine.
 
 Le capitaine était ému de l’accueil chaleureux qui leur a été fait alors qu’il
-
 passait, en compagnie de ses hommes, sous un préau qui donnait sur une
 gigantesque cour intérieure investie par quelques élèves s’adonnant à des
 exercices divers et variés.
@@ -141,7 +140,8 @@ visage laissaient penser qu’il s’agissait d’un enfant bercé d’innocence
 
 Il avait, au même titre que beaucoup d’autres japonais, le teint hâlé, les yeux
 noirs en amande, le nez large et la bouche large. Il avait le cheveux noir et
-court et ses oreilles étaient petites. Au même titre que Brunet, il portait lkepi et les manches de son manteau étaient brodées de nœuds hongrois.
+court et ses oreilles étaient petites. Au même titre que Brunet, il portait le
+képi et les manches de son manteau étaient brodées de nœuds hongrois.
 
 — Je m’appelle Jules Brunet.
 

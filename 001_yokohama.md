@@ -172,7 +172,7 @@ membres de la mission. Tous regardaient devant eux et pas un ne cillait malgré
 la fatique et la fraîche température sur le pont.
 
 — Votre interlocuteur principal, poursuivit Roze, sera le professeur Ōtori. Il
-vous escortera demain à la caserne militaire de Sendai, où l’instruction des
+vous escortera demain à la caserne militaire de Otamura, où l’instruction des
 troupes débutera dans les meilleurs délais. Des questions ?
 
 Un des officiers leva la main.
@@ -266,7 +266,7 @@ maux de dos, car les étrangers ont parfois du mal avec les futons !
 
 — On les appelle comme ça au Japon. Des matelas à même le sol et… Vous verrez.
 Pas d’inquiétude, on a fait préparer des chambres occidentales dans vos futurs
-appartements, lorsque nous irons à Sendai.
+appartements, lorsque nous irons à Otamura.
 
 — Merveilleux. dit Roches. Je propose que nous déjeunions ensemble, histoire
 que certains d’entre vous fassent connaissance avec monsieur Ōtori ici présent.
@@ -405,7 +405,7 @@ dehors, au devant de l’ambassade, où Roches, s’il ne fit des adieux aux
 camarades de la mission, s’adressait à eux en des termes élogieux.
 
 — Capitaine, messieurs les officiers, sous-officiers et instructeurs
-reposez-vous bien jusqu’à demain. Nous partons à Sendai dès la première heure,
+reposez-vous bien jusqu’à demain. Nous partons à Otamura dès la première heure,
 où nous visiterons la caserne dans laquelle vous passerez le plus clair de
 votre temps.
 
@@ -485,8 +485,9 @@ délestant de ses lourds habits d’officier. Puis il se mit à l’aise,
 s’allongeant sur le dos, le regard égaré sur le plafond en bois sombre.
 
 Il faisait encore jour, mais l’officier n’avait pas la force de sortir avec
-ses collègues pour profiter de quelque quartier libre avant le grand départ
-pour la ville de Sendai.
+ses collègues pour profiter de quelque quartier libre avant le départ
+pour la ville de Otamura, où se situait la caserne militaire dédiée à
+l’instruction des troupes japonaise du Japon dispensée par les Français.
 
 Alors, assailli de moult pensées sur l’issue de son entreprise et de la mission
 tout entière, il ferma les yeux et la digestion du repas du midi l’aida à
