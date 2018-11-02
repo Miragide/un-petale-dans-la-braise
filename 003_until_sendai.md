@@ -43,6 +43,7 @@ que par votre langue. Certains parlent même très bien le français.
 — Merveilleux, se permit Chanoine.
 
 Le capitaine était ému de l’accueil chaleureux qui leur a été fait alors qu’il
+
 passait, en compagnie de ses hommes, sous un préau qui donnait sur une
 gigantesque cour intérieure investie par quelques élèves s’adonnant à des
 exercices divers et variés.
@@ -59,3 +60,57 @@ soient optimales pour les instructeurs.
 La visite fut éclaire, et les présentations brèves. Quelques officiers japonais
 échangèrent des cartes de visite avec les instructeurs, et ne loupaient aucune
 occasion de parler le français.
+
+Réunis dans la cour, les instructeurs se regroupérent en arc de cercle autour
+de Roches.
+
+— Messieurs, mon travail s’achève ici. Je serai à Yokohama et il est probable
+que nous nous recroisions sous peu. Les hommes d’Ōtori ont l’air impatient de
+commencer l’instruction à vos côtés. J’espère que vous saurez tirer parti de
+cet enthousiasme… Sur ce, le devoir m’appelle. Bien du courage à vous.
+
+Il quitta les instructeurs, leur accordant cette même poigne ferme et ce
+sourire rassurant et paternel.
+
+— Merci, monsieur l’ambassadeur, fit Brunet.
+
+— Le devoir vous guide, jeune ami, confia Roches.
+
+Ōtori raccompagna Roches au dehors de la caserne, tandis que c’était au tour
+du capitaine Chanoine de faire face à ses hommes.
+
+— Prene connaissance des lieux, discutez avec les officiers et apprenez à les
+connaître. Ce seront vos principaux interlocuteurs. Demain, nous retournerons
+à Yokohama récupérer nos effets personnels. Il y a eu quelques complications
+avec la douane mais j’ai bon espoir que ça ne retarde pas notre mission.
+
+Puis d’ajouter :
+
+— Brunet, j’ai à te parler.
+
+Le grand brun opina du chef avant de faire quelques pas, se démarquant de ses
+groupe qui s’égaillait parmi les jeunes japonais trépignant de connaître leurs
+instructeurs.
+
+— Mon capitaine ?
+
+— Comment tu te sens ?
+
+— On ne peut mieux.
+
+— Fort bien. Je vais avoir besoin de toi pour des tâches qui sont annexes à tes
+fonctions principales, mais qui sont de la plus haute importance.
+
+Le grand brun releva le menton, inspirant et opinant du chef.
+
+— J’écoute ?
+
+— J’ai besoin de tes talents d’ingénieur pour améliorer les différents arsenaux
+que Monsieur l’ambassadeur Roches a fait construire à Yokohama ainsi qu’à la
+capitale d’Edo. De mes quinze gaillards, tu es le plus à même de remplir cette
+mission. Est-ce que je peux compter sur toi ?
+
+— Assurément, mon capitaine.
+
+— Parfait ! s’exclama Chanoine, je te transmettrai les établissements à
+visiter.
