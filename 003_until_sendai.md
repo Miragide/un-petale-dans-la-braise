@@ -113,4 +113,63 @@ mission. Est-ce que je peux compter sur toi ?
 — Assurément, mon capitaine.
 
 — Parfait ! s’exclama Chanoine, je te transmettrai les établissements à
-visiter.
+visiter. Nous nous reparlons plus tard.
+
+Brunet opina du chef tandis que Chanoine tournait des talons, mains dans le
+dos, déjà préoccupé par ses fonctions de capitaine qu’il aurait à remplir : de
+la paperasse, de l’administratif, de l’écriture de rapports. La dure vie de
+gradé que celle de finir sclérosé derrière un bureau sans connaître
+l’excitation du terrain.
+
+Un jeune japonais avait attendu à distance respectable de Brunet alors qu’il
+avait fini de s’entretenir avec son capitaine. Le jeune garçon sourit, l’air
+tant amusé que admiratif. Pour une raison que le grand brun peinait à
+s’expliquer, le garçon avait attendu que l’officier se libère.
+
+La mine amicale de ce garçon incita Brunet à s’approcher.
+
+– Bonjour ! s’exclama le jeune garçon. Je m’appelle Kintaro Tajima ! Je suis
+enchanté de faire votre connaissance !
+
+Il s’était exprimé dans un français remarquable, quoique scolaire, mais
+qui ne déplut guerre au grand brun, qui lui accorda une franche poignée de
+main.
+
+Kintaro était un jeune garçon semblable à beaucoup de japonais présents à la
+caserne. De petite taille et de constitution plutôt fine, les traits de son
+visage laissaient penser qu’il s’agissait d’un enfant bercé d’innocence.
+
+Il avait, au même titre que beaucoup d’autres japonais, le teint hâlé, les yeux
+noirs en amande, le nez large et la bouche large. Il avait le cheveux noir et
+court et ses oreilles étaient petites. Au même titre que Brunet, il portait lkepi et les manches de son manteau étaient brodées de nœuds hongrois.
+
+— Je m’appelle Jules Brunet.
+
+— Professeur Brunet, conclut Kintaro.
+
+— Votre français est excellent.
+
+— Merci. Vous parlez le japonais.
+
+— Peu… Très peu.
+
+— Ōtori sensei m’a dit que vous étiez polyglothe. Est-ce vrai ?
+
+Brunet marqua un silence. Il venait de comprendre pourquoi le jeune homme lui
+avait automatiquement accordé le titre de professeur, comme il avait accordé
+le suffixe « *sensei* » à Ōtori. S’il ne connaissait pas la langue, il était un
+minimum au fait de l’étiquette japonaise et il se rendit à l’évidence du
+caractère humble et respectueux du jeune homme.
+
+— Oh, je ne sais… J’ai quelques notions en langues européennes, mais je peine
+à me faire ne serait-ce qu’à votre système d’écriture.
+
+— Je serais ravi de vous l’apprendre, professeur Brunet.
+
+Le grand brun souffla un rire amusé. Ce jeune homme, plein de ressources, lui
+plaisait déjà. Pourvu que cet enthousiasme continuât, pensait-il.
+
+— Avec grand plaisir, jeune homme. Mais quel est votre grade ?
+
+— Je suis lieutenant d’artillerie. Vous allez m’apprendre à utiliser les
+canons ? Sans ça, nous ne pourrons nous défendre contre les clans du Sud.
