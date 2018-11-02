@@ -38,10 +38,13 @@ bonne figure dans l’intérêt de leur clan respectif.
 
 — Je suis ravi que nous fassions affaire. avoua un samouraï à un commerçant
 qui, tournant la tête vers son interlocuteur, lui sourit.
+
 — Et moi, je suis convaincu que vous avez fait le bon choix. Je vous le redis :
 il est tant pour le Japon d’entrer dans une nouvelle ère !
+
 — Les sabres n’auront vraiment aucune utilité après que vous nous aurez cédé
 votre artillerie.
+
 — Et voyez même au-delà ! Vous prenez le parti d’être aux dernières avancées
 en matière d’armement. Votre pays a trop longtemps sombré dans l’isolement et
 l’absence de communication à l’extérieur a causé un retard sans précédent, que
