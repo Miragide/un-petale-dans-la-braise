@@ -63,4 +63,70 @@ mine interdite plus que jamais.
 peut-être d’une ruse comme ces pleutres du Sud ont l’habitude de faire. C’est
 eux qui ont monté le Mikado contre vous. Ils sont capable des pires bassesse.
 
+Tous furent plongés dans un bref mutisme. Chacun des hôtes de Tokugawa
+cherchaient un point de fuite pour son regard, de sorte à ne pas s’attirer
+les foudres un peu subites du commandant. Mais la sentence ne tarda pas à
+tomber.
 
+— Laissez-moi.
+
+Chanoine ne se fit pas prier pour quitter la pièce, mimant la prestance des
+seigneurs de guerre dans le souci de ne pas dépeindre une once d’arrogance
+dans ses manières au vu de la tension actuelle.
+
+Il regagnait la cour du château, dans laquelle il assistait au triste constat
+suivant : les différents État majors, quels qu’ils fussent, étaient désagrégés
+en petit groupes, discutant de tout et de rien mais certainement pas de
+stratégie. On pouvait lire l’amertume de la défaite sur de nombreux visages, et
+sur d’autres, une impression de terreur qui, Chanoine le sentait, ne
+concernaient pas le tournant industriel de la guerre qui hissait l’artillerie
+lourde au-dessus des armes de poing dépréciables.
+
+C’était une toute autre chose. Mais quoi ?
+
+En retrait, Brunet et Cazeneuve se tenaient adossé à un muret, le regard
+sombre.
+
+— Un an. Une année acharnée pour en arriver à un résultat aussi… Pitoyable.
+Qu’avons-nous fait au bon Dieu ? demanda Brunet à son comparse.
+
+— À qui le demandes-tu. La cavalerie que l’officier Descharmes et moi-même
+avons formée s’est retrouvée complètement inefficace face aux lignes ennemies,
+sans que je n’en eusse compris les raisons.
+
+— Ils sont tétanisés. Mêmes les hommes qui ont été les mieux formés et les
+mieux préparés n’ont pas réussi à garder leur sang-froid. Cette peur, je
+n’arrive pas à la discerner.
+
+— Nous n’avons rien de japonais, voilà tout.
+
+— Hélas… s’attrista Brunet.
+
+Du haut du château, Tokugawa, accompagné de deux proches seigneurs, vit au loin
+quelque chose qui lui glaça le sang, quelque chose qui, en quelques secondes,
+avait ôté tout espoir de représailles, toute idée de stratégie défensive, et
+en appelait, au plus profond de lui-même, à fuir sur-le-champ.
+
+Au loin, à l’horizon bien éclairci des lendemains de batailles sanguinolentes,
+flottait au vent deux étandars rougeâtres dont le motif clannique, aux couleurs
+d’or, représentant un chrysanthème, ne laissait aucun doute quant à son
+appartenance.
+
+C’était le motif de l’Empereur, dont l’armée marchait sur Ōsaka. C’était donc
+ça, l’origine de la crainte des Japonais, et l’une des explications les plus
+plausibles de leur défaite. Le sentiment qu’est celui de s’en prendre à un
+représentant divin sur Terre.
+
+Les trois Japonais ressentirent une profonde amertume, une lourde et fâcheuse
+peine. Ils ne se firent pas prier et quittèrent discrètement l’enceinte du
+château, le cœur meurtri par ce qui leur semblait être une hérésie.
+
+Ce n’est que lorsque Ōtori eut voulu demander audience avec Tokugawa qu’on se
+rendit compte qu’il avait déserté. Et que les bannières impériales
+progressaient telle une punition divine et une menace de mort imminente.
+
+Personne, pas même les français, ne voulurent dresser un plan de défense face
+à l’armée impériale qui marchait victorieuse sur Ōsaka et qui, sans heurt,
+investit le château éponyme, bientôt en proie aux flammes, offrant un spectacle
+désolé au loin alors que les vaisseaux avaient déjà pris le large en partance
+vers la capitale…
