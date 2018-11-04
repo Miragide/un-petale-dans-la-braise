@@ -69,3 +69,19 @@ massacre.
 saurait suffire en juste réparation. Je gage que le ministre de France saura
 accepter que votre gouvernement statue du sort du reste des supplicié. Onze
 vies suffiront à dédommager les onze héros qui nous ont quittés.
+
+Le gouverneur d’Ōsaka, qui siégeait à la tribune d’en face, approuva la
+requête au moment où on amenait le douzième condamné. Lorsque celui-ci prit
+connaissance de son sursis, lui non plus ne montra aucune surprise, aucune
+émotion.
+
+Si Bergasse demeurait intérieurement colère au vu de cette soi-disant
+réparation qui n’en était pas une, le gouverneur et les autres représentant
+étrangers lui témoignèrent une gratitude et une reconnaissance telles qu’elles
+estompèrent ses remords.
+
+La nuit tombée, il était remonté à bord du Dupleix relater les incidents à
+Outrey et Roches.
+
+— Pourvu que le Mikado voient en cet acte une bonne action de notre part,
+conclut Outrey.
