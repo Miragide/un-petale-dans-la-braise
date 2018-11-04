@@ -99,3 +99,20 @@ samouraïs, ces chevaliers de l’Est au cœur noble, qui ont su nous accueillir
 dans l’hospitalité la plus parfaite. Veuillez, messieurs, pardonner l’infâme
 orateur que je suis, qui n’a voulu qu’exprimer tout haut ce que des milliers
 d’hommes pensent tout bas…
+
+Il se tut. Personne ne trouva rien à ajouter et Tokugawa demanda à ce qu’on
+le laissât seul.
+
+Quand bien même Brunet fut timidement congratulé par ses collègues et Roches —
+ce qui le motiva d’autant plus à élaborer un plan de défense visant à cueillir
+les troupes impériales lors de leur progression sur Kyōto — l’ultime appel à
+poursuivre la lutte n’eut pas l’effet escompté.
+
+Quelques jours, plus tard, en effet, Roches, qui était venu présenter le plan
+militaire de Brunet à Tokugawa, essuya un refus catégorique. Il se rendit à
+l’évidence : Tokugawa, s’il éprouvait quelque animosité à l’égard des clans du
+Sud, refusait catégoriquement de prendre les armes contre ce qu’il qualifiait
+d’armée impériale.
+
+Choqué, l’ambassadeur Léon Roches remit sa démission, laissant la mission
+militaire française dans une situation délicate.
