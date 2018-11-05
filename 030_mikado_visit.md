@@ -47,3 +47,42 @@ me suis empressé de contacter vous sauront gré.
 Les hommes se turent, Bergasse fumant la pipe d’un air las, détendu, tandis que
 Roches essayait de trouver quelque instant de détente en sirotant le thé vert
 qu’on avait préparé.
+
+L’attente semblait interminable pour Roches et plutôt plaisante pour Bergasse.
+Au terme de laquelle on conduisit les invités dans la cour intérieure où
+l’Empereur Meiji les attendait.
+
+Comme à toutes les réceptions, l’accoutrement de son altesse impériale, 
+grandiloquente au demeurant, constituait en une amble robe blanche aux gros
+boutons jaunâtres, avec un énorme bonnet noir pareil à une crête de coq. Son
+regard, toujours celui d’un enfant à qui on avait ôté toute envie de
+distraction et de plaisir, était vide, terne, jonglant du regard sur les 
+invités qui s’inclinèrent profondément.
+
+Au terme d’un court instant, alors qu’ils s’étaient redressé, Roches exprima
+son discours, reprit par un interprète dans la langue locale.
+
+Ce discours visait à exprimer les sentiments de Napoléon III à l’égard du
+nouvel empereur, et le souhait de la France de nouer des relations économiques
+et politiques dans l’espoir de consolider des sentiments d’amitié et aider
+le Japon à rayonner à l’international. Cela n’était pas sans rappeler
+l’existence de la première mission militaire française au Japon qui, disait
+Roches, a observé un comportement tout à fait neutre et a contribué à
+l’innovation de certaines infrastructures et arsenaux. Il précisait aussi
+qu’elle était prête à se retirer du pays selon la volonté de l’Empereur Meiji.
+
+Le jeune Empereur remit sa réponse à son interprète et ne fit rien d’autre que
+de s’enquérir de l’état de santé de Napoléon III.
+
+Ce n’est, finalement, que lorsque les trois Français purent quitter l’enceinte
+du palais impérial — non sans que Bergasse ne recevât, encore et toujours,
+congratulations sur congratulations — que Roches, rasséréné, se permit telle
+remarque néanmoins :
+
+— Le Shōgun avait raison. Le jeune Empereur est manipulé. Je n’ai perçu aucune
+trace d’intelligence dans sa personne.
+
+Bergasse, impassible au demeurant, de répondre :
+
+— Tout le monde s’accorde à penser — mais non à dire — que le jeune Empereur
+doive s’attendre à une farouche résistance dans le Nord de l’archipel.
