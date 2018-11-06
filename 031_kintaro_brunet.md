@@ -57,8 +57,8 @@ au grand brun qui observait son jeune élève d’un air passionné.
 
 — Parfait. Alors vous comprendrez qu’il est de mon devoir de suivre Seigneur
 Ōtori et les autres dans leur entreprise. Dois-je en mourir. Aussi, j’attendrai
-chaque jour sur le port de Sendaï, où mon cœur me souffle qu’une corvette 
-ammarera avec à son bord le plus formidable officier français qu’il m’ait été
+chaque jour sur le port de Shinagawa, où mon cœur me souffle qu’une flotte 
+escortera à son bord le plus formidable officier français qu’il m’ait été
 donné de connaître.
 
 Kintaro sourit, fermant les yeux, avant de poursuivre.
