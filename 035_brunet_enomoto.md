@@ -72,11 +72,11 @@ complice.
 
 — Non.
 
-Ils n’eurent pas longtemps à patienter. Kintaro revint, suivit de Ōtori et
+Ils n’eurent pas longtemps à patienter. Kintaro revint, suivit
 d’un autre homme aux traits asiatiques mais à la dégaine typiquement
 européenne. On aurait dit un amiral de l’armée française.
 
-— Professeur Brunet, professeur Cazeneuve, introduisit Ōtori, j’ai l’immense
+— Professeur Brunet, professeur Cazeneuve, introduisit Kintaro, j’ai l’immense
 honneur de vous présenter Seigneur Enomoto Takeaki, samouraï dévoué à la cause
 du Shōgun Tokugawa Yoshinobu.
 
