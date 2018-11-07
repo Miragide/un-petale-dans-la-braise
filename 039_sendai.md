@@ -110,7 +110,8 @@ moderniser le gros de ses troupes et instruire nos jeunes samouraïs aux
 techniques militaires française. Les résultats, malgré nos échecs, se sont
 montrés satisfaisants et le *Denshūtai* de seigneur Ōtori, ici présent, a fait
 preuve d’un grand courage face au modernisme des armées adverses lors des
-différentes bataille.
+différentes bataille. Sans parler de notre flotte, qui surpasse celle des
+impérialistes, notamment avec la présence du *Kaiyō Maru*.
 
 Cazeneuve sourit à Brunet. Ce dernier, le dos droit et le menton relevé,
 écoutait avec entrain.
@@ -139,3 +140,95 @@ Hijikata Toshizō.
 
 Sur ces mots, un commis fit venir Hijikata, qui fut accepté pour prendre part
 au conseil de guerre.
+
+Le vice-commandant du *Shinsengumi* marchait de manière solennele, le pas 
+lourd, jusqu’à prendre place au milieu des officiers.
+
+Enomoto reprit les faits, accordant une piqûre de rappel à ses officiers,
+expliquant les manœuvres à suivre pour Hijikata.
+
+Brunet observait le guerrier avec un regard admiratif, auquel Cazeneuve sourit
+en coin. Tous deux semblaient s’accorder sur un point.
+
+— Un bon samouraï à l’ancienne… murmura Brunet.
+
+— Seigneur Hijikata, poursuivit Enomoto, vice-commandant du *Shinsengumi*,
+originaire de la ville de Tama, je vous en conjure : dirigez nos hommes à la
+guerre contre les impérialistes depuis Ezo !
+
+Plus personne ne parlait. Hijikata même demeurait immobile, mais l’on pouvait
+voir sa silhouette se mouvoir dans une grande inspiration.
+
+— J’accepte sous une seule et unique condition ! répondit-il.
+
+L’attente était insupportable. Beaucoup, parmi l’assistance, voyaient en
+Hijikata ce meneur d’hommes charismatique qui avait fait trembler les ennemis
+du Shōgun.
+
+— Les ordres devront être suivis dans la plus totale servitude, et je me
+réserve le droit de pourfendre quiconque désobéirait à mon commandement ou
+s’écarterait de la voie du guerrier !
+
+Sur ces paroles, le vice-commandant du *Shinsengumi* s’inclina profondément à
+l’intention de Enomoto puis, s’étant dirigé vers la sortie de la salle de
+réunion, s’était retourné vers l’assistance, qu’il salua avec tout autant de
+respect.
+
+L’on attendit qu’il ait coulissé la porte pour la refermer, et qu’il se soit
+éloigné éventuellement.
+
+— C’est aberrant ! Jamais je ne remettrai mes hommes au commandement de cette
+racaille ! fit l’un des officiers.
+
+— Seigneur Hijikata n’est pas une racaille, protestait un autre. Il a voué sa
+cause au Shōgun depuis le début avec ses amis et il restera dans le même camp
+jusqu’à la fin. C’est l’homme le plus intègre et le plus droit que je
+connaisse !
+
+— Vous appelez ça droit, vous, de racketter les marchands de Kyōto pour assurer
+leur protection ? On ne les appelle pas les « Loups de Mibu » pour rien.
+Racaille ! Et puis, il n’est même pas un samouraï, comment peut-il prétendre
+à diriger quelque armée que ce soit !
+
+— Menteur ! Monsieur Hijikata est un homme tout ce qu’il y a de plus
+respectable ! C’est grâce à lui que le *Shinsengumi* a cessé ses activités de
+vandalisme et que les rues de Kyōto ont été sûres pendant de nombreux mois !
+Pourquoi croyez-vous qu’il ait imposé de sabrer quiconque s’écartait de la voie
+du guerrier ? Ce sont les conséquences naturelles du relâchement et de
+l’hypocrisie auquel nous sommes tous sujets. Il ne fait que suivre le *Bushidō*
+à la lettre, comme tous les chevaliers de ce pays ont juré de le faire, et vous
+osez le traiter de racaille ?
+
+— Calmez-vous, ordonna Enomoto.
+
+Des voix s’élevèrent dans la salle. Certains voulaient s’en remettre à Hijikata
+tandis que d’autres décriaient cette possibilité.
+
+Brunet avait perdu son regard sur le sol, comme retranché en lui-même.
+
+— Tu en penses quoi ? questionna Cazeneuve.
+
+Brunet releva machinalement la tête, portant son attention sur son ami.
+
+— S’il avait été en Europe, au vu de son charisme, il aurait probablement été
+un très bon général.
+
+— C’est quand même difficile, ce qu’il a pu dire. Je me demande si suivre un
+code d’honneur à la lettre est une bonne idée.
+
+— Pas toujours, je pense. Mais pour un homme qui porte des habits occidentaux,
+je vois en Seigneur Hijikata quelqu’un de raisonné et de suffisamment intègre
+pour s’adapter au monde tout en gardant ce même esprit de guerrier qui saurait
+nous mener à la victoire. C’est parce que nous manquions de gens comme lui
+pour assurer l’unité entre toutes nos factions. Les généraux ont très mal
+communiqué, certains se sont même retournés contre nous. Non, vraiment, avec
+un homme de cette trempe, ça n’arrivera pas.
+
+Cazeneuve acquiesça silencieusement.
+
+Au final, il était entendu que parmi tous les commandants et officiers qui se
+joindraient à la lutte, tous avaient préféré soumettre leurs hommes à Ōtori,
+qui avait, disait-on, plus d’expérience que Hijikata pour mener des bataillons
+tout entier.
+
+Le conseil était clos.
