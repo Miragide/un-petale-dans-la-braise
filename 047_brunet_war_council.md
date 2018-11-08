@@ -163,12 +163,12 @@ Puis ils se redressèrent, s’accordant un regard profond, sincère. Les mots
 étaient inutiles.
 
 Brunet voyait en Hijikata un homme brisé mais nourri par ses rêves, se battant
-pour des valeurs chevaleresques, utopiques, fragile comme la rosée et le gel
+pour des valeurs chevaleresques, utopiques, fragiles comme la rosée et le gel
 matinal qui disparaissent sous le soleil.
 
 Hijikata voyait en Brunet quelque preuve que la chevalerie du Japon pouvait
-séduire le cœur d’un homme fout, prêt à renoncer à tout ce qu’il possédait de
-plus précieux pour venir soutenir ses amis dans un combat perdu d’avance.
+séduire le cœur d’un homme fou, prêt à renoncer à tout ce qu’il possédait de
+plus précieux pour soutenir ses amis dans un combat perdu d’avance.
 
 Deux âmes brisées qui, se rencontrant dans cette fin de journée froide et
 inhospitalière, se complétaient pour le meilleur et pour le pire.
