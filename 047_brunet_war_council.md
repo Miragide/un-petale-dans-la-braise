@@ -42,10 +42,45 @@ l’île.
 
 — C’est un honneur, monsieur le président, répondit Brunet.
 
-Le reste des instructions fut donné et l’assemblée fut levée. Les groupes
-s’étaient déjà formés au dehors, Brunet entouré de ses quatres acolytes.
+Le reste des instructions fut donné, après quoi l’heure fut à la discussion sur
+un plan d’attaque. Pour ne pas affâmer les participants à la réunion, un commis
+avait discrètement amené du thé et des biscuits.
 
-— Je… Reconnais que j’ai été acide, plus tôt dans la journée, avoua-t-il.
+Ōtori s’éclaircit la voix.
+
+— Maintenant, j’aimerais, en tant que ministre des armées fraîchement élu,
+discuter des prochaines offensives. Nous devons impérativement prendre les
+villes stratégique que sont Matsumae, à la pointe Sud de l’île, ainsi que la
+ville d’Esashi sur la côte Ouest. Monsieur Hijikata mènera l’attaque au Sud.
+Je voudrais qu’il soit accompagné d’officiers français.
+
+— En ce qui concerne l’attaque sur Matsumae, répondit Brunet, Monsieur Marlin
+mènera les troupes d’infanterie avec Monsieur Hijikata et je fournirai un appui
+d’artillerie. Pour Esashi, Messieurs Bouffier et Cazeneuve mèneront l’offensive
+et seront appuyés par monsieur Fortant pour l’artillerie.
+
+— Je suggère d’envoyer le *Kaiyō Maru* par la mer pour faire une démonstration
+de force à Esashi. Cela aura de quoi faire comprendre aux impérialistes que
+nous ne lésinons pas sur les moyens.
+
+— Mauvaise idée, coupa Brunet. Le temps que le navire arrive à Esashi est trop
+important et le temps en mer en cette saison est instable. Nous avons largement
+de quoi prendre la ville par les simples appuis terrestre de mes brigadiers.
+
+— C’est moi qui ai le dernier mot, général Brunet. Nous enverrons le 
+*Kaiyō Maru* en passant par le Sud Ouest.
+
+Le grand brun fronçait les sourcils, interrogeant du regard ses officiers et
+les autres hommes ici présents.
+
+— Bien, poursuivit Enomoto. Nous conviendrons d’une stratégie optimale
+ultérieurement. Réfléchissons de notre côté. La lutte ne fait que commencer…
+
+L’assemblée fut levée. Les groupes s’étaient déjà formés au dehors, Brunet
+entouré de ses quatres acolytes.
+
+— Je… Reconnais que j’ai été acide, plus tôt dans la journée, avoua-t-il. Par
+rapport aux marins, je précise.
 
 Les quatre n’avaient osé regarder le grand brun dans les yeux, qui avait
 verbalisé le fond d’une lourde pensée commune.

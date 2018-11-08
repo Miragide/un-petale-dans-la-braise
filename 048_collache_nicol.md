@@ -104,7 +104,7 @@ peuple ?
 
 La question de Cazeneuve était restée en suspend.
 
-— Les gars, je… Je vous remercie du fond du cœur. Vraiment.
+— Les amis, je… Je vous remercie du fond du cœur. Vraiment.
 
 Les quatre officiers sourirent. Kintaro, qui était resté discret, ce même
 sourire en coin que Cazeneuve, s’en alla donc porter la nouvelle aux deux
@@ -166,7 +166,7 @@ ministre de la guerre. Vous comprenez ?
 fermement Nicol. Nous on est des durs de la marine comme vous en verrez peu.
 Et si on est là c’est pour voir des cadors de la Grande Muette comme on en
 voit nulle part. On sait de quoi on est capable. On n’est pas là pour enfiler
-des perles et vos amis japonais sauraient profiter de notre savoir.
+des perles et vos amis japonais sauraient profiter de notre savoir. 
 
 — Soyez honnêtes avec nous, reprit Collache. monsieur Brunet, avec tout le
 respect qu’on vous doit… N’avez-vous pas aussi démissionné sans attendre que
@@ -175,9 +175,14 @@ aussi ?
 
 Le grand brun se tut. Collache avait touché un point sensible.
 
-— Tu dis juste. Pardonnez-moi de vous avoir mis dans l’embarras, tous les deux.
-J’accepte de vous prendre tous les deux sous mon commandement à une seule et
-unique condition.
+— vous savez, je vous ai traité de « tête de con » dans mon emportement et je
+le regrette amèrement. Mon cœur se soulève rien que d’y penser, et c’est dire
+si je veux m’ouvrir le bas ventre pour nettoyer cette impureté dont je vous
+ai fait l’affront, Monsieur Brunet.
+
+— Tu dis juste, répondit le grand brun. Pardonnez-moi tous les deux de vous
+avoir mis dans l’embarras. Et ce juron était justifié. J’accepte de vous
+prendre tous les deux sous mon commandement à une seule et unique condition.
 
 Il planta son regard, tour à tour, dans celui des deux marins qui se servaient
 en gateaux, rassurés.
