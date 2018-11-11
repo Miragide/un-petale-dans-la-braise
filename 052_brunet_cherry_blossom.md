@@ -142,4 +142,19 @@ nourris par la Chevalerie, Monsieur Hijikata !
 
 Les deux hommes se regardèrent intensément. Une flamme semblait briller dans le
 regard du grand brun, qui voyait en Hijikata une inévitable source
-d’inspiration. 
+d’inspiration. Ce dernier retint aisément des larmes, mais sa gorge nouée
+l’empêchait de parler davantage.
+
+Brunet fit face à son ami lui tendit sa main.
+
+— Si le salut japonais a une signification toute particulière que vous m’avez
+expliquée, la poignée de main en a tout autant. Elle montre que nous n’avons
+pas l’intention de dégainer l’épée.
+
+Le Japonais observa un instant le grand brun. Il n’avait pas l’habitude des
+contacts physique avec qui que ce soit dans ce genre de situation. Mais ce
+Français lui semblait on ne peut plus honnête, sans parler des communes
+valeur qui les liaient.
+
+Alors il lui accorda une poigne vigoureuses aux cornes rebondies ; une main
+de sabreur, que Brunet serra chaleureusement.
