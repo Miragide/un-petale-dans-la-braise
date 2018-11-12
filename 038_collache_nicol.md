@@ -53,7 +53,7 @@ de la légation et en demandant à ses collégues.
 — Ah.
 
 Une évidence. Que faisait, après tout, un marin qui n’égarait pas une oreille
-indiscrète prềt du bureau de l’ambassadeur ? Il travaillait.
+indiscrète prêt du bureau de l’ambassadeur ? Il travaillait.
 
 Mais Collache avait perdu toute notion de travail. Il mourrait d’envie de
 raconter ce potin à Nicol. Il ne tenait plus en place, et quitter la légation
