@@ -29,7 +29,7 @@ moi ? Je vous le redemande : pour qui vous prenez vous ?!
 — Vous ne comprenez *rien* ! La guerre ne cède pas sa place aux sentiments et
 aux volontés personnelles, Brunet ! Et puis qui êtes-vous pour juger de la
 valeur de la vie de qui que ce soit ici ? Vous n’avez aucun lien hiérarchique
-avec ma personne ! Vous n’avez pas à décider de ceux qui doivent me protéger
+avec ma personne ! Vous n’avez pas à décider de ceux qui doivent me protéger
 sous quelque condition que ce soit !
 
 — Je…
