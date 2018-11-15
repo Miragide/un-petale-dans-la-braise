@@ -1,3 +1,5 @@
+# Le duo de comiques {-}
+
 Collache et Nicol avaient donc démissionné de la marine française, sans
 attendre que leur initiative eût été approuvée par leur supérieur, le
 vice-amiral Bergasse.

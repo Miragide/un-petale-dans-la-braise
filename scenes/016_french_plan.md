@@ -1,3 +1,5 @@
+# La veille du départ {-} 
+
 On frappa doucement, mais répétitivement, à la porte de la chambre de Brunet.
 Le capitaine fraîchement promu avait la particularité d’avoir le sommeil léger
 en plus d’être énergique. Il ne se fit pas prier pour ouvrir sa porte.

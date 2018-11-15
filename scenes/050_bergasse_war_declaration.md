@@ -1,3 +1,5 @@
+# Comme une condamnation à mort {-}
+
 Si les troupes d’Enomoto avaient pu prendre sans trop de heurt les villes de
 Esashi et de Matsumae, l’amiral, qui avait pris la liberté de voguer jusqu’à
 Esashi à bord de sa frégate, dû en fait abandonner celle-ci en cours de route.

@@ -1,3 +1,5 @@
+# De mal en pis {-}
+
 En paralléle de l’offensive menée sur la baie de Matsumae, des troupes
 terrestres avaient été dépêchées pour stopper les troupes impériales qui, après
 avoir repris Matsumae, s’approchaient un peu plus chaque jour en direction de

@@ -1,3 +1,5 @@
+# Un amour impossible {-}
+
 La nuit était tombée sur Ōtamura. Les températures étaient douces et la brise
 côtière véhiculait des effluves apaisants.
 

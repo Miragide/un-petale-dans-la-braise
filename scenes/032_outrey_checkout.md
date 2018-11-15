@@ -1,3 +1,5 @@
+# Un rêve avorté {-}
+
 Les mois avaient passés et la légation avait réussi, par l’intermédiaire du
 vice-amiral Bergasse et du nouvel ambassadeur Outrey, à établir des relations
 diplomatiques entre les deux Empires.

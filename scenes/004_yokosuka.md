@@ -1,3 +1,5 @@
+# Yokosuka {-}
+
 Les jours passèrent sans qu’aucune péripétie notable ne se déroulât. Si ce
 n’était que la journée dédiée à la récupération des bagages et autres effets
 personnels à la douane eut été éreintante. De quoi retarder l’inévitable début

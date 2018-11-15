@@ -1,3 +1,5 @@
+# Vers le destin {-}
+
 Tomi n’était pas la seule personne à qui Brunet devait des adieux.
 
 — J’aimerais adresser mes sentiments à ce bon vieux Verny. C’est un vieil ami

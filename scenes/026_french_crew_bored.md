@@ -1,3 +1,5 @@
+# Quand l’ennui assaille {-}
+
 — Ça fait un moment qu’on l’a pas croisé, le capitaine Brunet.
 
 Bouffier, à l’origine de cette remarque, mâchait lentement une bouchée de riz

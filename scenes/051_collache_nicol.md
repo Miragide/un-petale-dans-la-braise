@@ -1,3 +1,5 @@
+# Un duo déterminé {-}
+
 Les semaines avaient passés et ils ne les comptait plus. Chaque jour était une
 peine, une douleur aigüe pour les amis Collache et Nicol qui survivaient en
 gagnant leur pain à la sueur de leur front.

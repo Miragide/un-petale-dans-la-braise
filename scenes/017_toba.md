@@ -1,3 +1,5 @@
+# Bataille de Toba {-}
+
 Le ciel grisâtre ne laissait percevoir qu’un pâle reflet du soleil sur les
 nuages épais, éclairant d’une faible gerbe terne cette morne journée hivernale.
 

@@ -1,3 +1,5 @@
+# Reddition {-}
+
 Les aventures de Collache ne s’étaient pas arrêtées dans les fourrés.
 
 Il avait réussi à semer ses poursuivants alors qu’il avait récupéré ses

@@ -1,3 +1,5 @@
+# Jusqu’à la mort {-}
+
 De son côté, Hijikata avait mené le reste de ses troupes ainsi que quelques
 hommes en réserve à Hakodate pour mener une contre offensive au Nord. Shimada,
 bien qu’il n’avait pas totalement récupéré de ses blessures suite à l’échec

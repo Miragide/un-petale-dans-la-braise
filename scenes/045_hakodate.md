@@ -1,3 +1,5 @@
+# Hakodate {-}
+
 Les troupes d’Enomoto s’étaient scindées en trois parties.
 
 Deux d’entre elles avaient continué sur la terre ferme, repoussant tour à

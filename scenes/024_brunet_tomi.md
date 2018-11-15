@@ -1,3 +1,5 @@
+# Un amour réconfortant {-}
+
 — Plus rien n’a de saveur…
 
 Les semaines passaient et paraissaient affreusement longues pour Brunet. Sa

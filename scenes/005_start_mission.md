@@ -1,3 +1,5 @@
+# La mission en marche {-}
+
 Les jours passèrent à nouveau, dans le calme et la quiétude. Le temps quant à
 lui était frais et nuageux. Rien ne laissait présager quelque intempérie
 indésirable.

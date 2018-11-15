@@ -1,3 +1,5 @@
+# Triste chevalerie {-}
+
 Il observait d’un œil admirateur l’ancien Shōgun, Tokugawa, d’habits européens
 vêtus qui, la mine mélancolique, manœuvrait un pur sang en compagnie de
 Cazeneuve. Ce dernier avait, dernièrement, assisté Descharmes dans le

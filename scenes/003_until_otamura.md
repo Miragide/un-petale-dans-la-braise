@@ -1,3 +1,5 @@
+# Ōtamura {-}
+
 Chanoine descendit vigoureusement de son cheval, manquant de tomber tête la
 première alors que son pied gauche était resté coincé dans l’étrier. Il étouffa
 un petit juron tandis qu’il était rejoint par ses hommes. Tous étaient à l’aise

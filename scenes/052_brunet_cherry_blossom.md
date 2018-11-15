@@ -1,3 +1,5 @@
+# Amitiés solides, quoique éphémères {-}
+
 Et l’hiver passa, non sans douleur pour le camp rebelle d’Enomoto soutenu par
 les sept Français.
 

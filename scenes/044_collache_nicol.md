@@ -1,3 +1,5 @@
+# Un duo inséparable {-}
+
 — Ça caille sévère !
 
 Collache avait renfloué avec Nicol après la mauvaise piste que fut Sendai.

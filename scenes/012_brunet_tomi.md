@@ -1,3 +1,5 @@
+# Un amour fragile {-}
+
 — Bon appétit ! lança joyeusement Tomi.
 
 Brunet l’avait invitée à un comptoir à sushi en ce début d’Automne. Plus tôt,

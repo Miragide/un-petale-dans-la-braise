@@ -1,3 +1,5 @@
+# Frustration {-}
+
 À Ōtamura, la vie suivait paisiblement son cours et la caserne naguère occupée
 par l’équipe de Chanoine et les élèves japonais était désormais investie par
 les troupes impériales.

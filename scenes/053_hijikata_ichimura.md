@@ -1,3 +1,5 @@
+# Le loup part en chasse {-}
+
 Sous une timide aurore matinale, Hijikata s’était rendu dans la cour du fort
 de Goryokaku. Il tenait fermement son sabre en bois, depuis la base de son
 bas ventre, la pointe de celui-ci remontant à la diagonale, visant nul autre

@@ -1,3 +1,5 @@
+# Un amour naissant {-}
+
 Brunet déambulait dans les rues d’Otamura en cette douce et agréable journée
 de printemps. Les premiers cerisiers avaient commencé à fleurir et certaines
 rues étaient bordés d’arbres aux branches magnifiquement affublées de milliers

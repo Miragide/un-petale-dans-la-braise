@@ -1,3 +1,5 @@
+# Devoir de mémoire {-}
+
 Les années passèrent.
 
 Hakodate avait bien changé. Le peu d’habitations pittoresque restantes

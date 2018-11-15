@@ -1,3 +1,5 @@
+# La fin d’une épopée {-}
+
 Le *Coëtlogon* finit par amarrer au port de Yokohama.
 
 Brunet avait fini, au terme de nombreux échanges écrits, à convaincre Outrey de

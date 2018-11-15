@@ -1,3 +1,5 @@
+# Une flamme s’éteint {-}
+
 Hijikata, quant à lui, se tenait sur les quais du port, les bras croisés, son
 regard soutenant l’horizon au Sud. Shimada se tenant à ses côtés.
 

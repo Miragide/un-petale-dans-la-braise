@@ -1,3 +1,5 @@
+# Jusqu’à Ōsaka {-}
+
 Son devoir, comme l’avait suggéré le capitaine Chanoine, l’avait mené ainsi
 à la ville de Ōsaka, située au milieu de l’île principale du Japon. Elle se
 trouvait juste au Sud de la capitale impériale — Kyōto.

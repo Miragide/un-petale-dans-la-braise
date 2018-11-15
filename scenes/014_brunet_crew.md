@@ -1,3 +1,5 @@
+# Un climat hostile {-}
+
 La nouvelle ne tardait à traverser le pays. Le Shōgun, héritier d’une dynastie
 ayant régné d’une poigne de faire pendant plus de deux cent cinquante ans de
 manière ininterrompue, a finit par démissionner de ses fonctions afin d’éviter

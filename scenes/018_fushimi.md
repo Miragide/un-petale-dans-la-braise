@@ -1,3 +1,5 @@
+# Bataille de Fushimi {-}
+
 Non loin, plus à l’Est, ce fut un autre bruit que le tir des canons qui résonna
 dans l’air lourd de la bataille.
 

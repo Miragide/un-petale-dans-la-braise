@@ -1,3 +1,5 @@
+# Pendant ce temps, au Sud… {-}
+
 La nuit d’hiver était glaciale, et ce même à l’extrême Sud du Japon qui
 pourtant se trouvait plus proche de l’équateur que du reste de l’archipel.
 

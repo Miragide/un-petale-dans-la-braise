@@ -1,3 +1,5 @@
+# Pendant ce temps, à Yokohama {-}
+
 — Tenez, monsieur l’ambassadeur.
 
 Bergasse laissa tomber les deux documents qu’il tenait d’une main lasse sur

@@ -1,3 +1,5 @@
+# L’incident de Sakai {-}
+
 Le Dupleix, qui avait commencé à mouiller à Yokohama le mois dernier pour y
 déposer Bergasse et Outrey, avait continué sa route, plus au Nord, accompagné
 d’un autre navire baptisé la Vénus, dans l’espoir d’effectuer des relevés

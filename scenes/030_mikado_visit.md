@@ -1,3 +1,5 @@
+# Nouvelle collaboration ? {-}
+
 — Ce ne sont que des formalités.
 
 Roches et Bergasse marchaient, accompagnés d’un commandant de la marine

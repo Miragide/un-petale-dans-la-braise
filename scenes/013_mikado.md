@@ -1,3 +1,5 @@
+# L’Empereur {-}
+
 À Kyōto, capitale impériale, et plus précisément dans le palais du Mikado, se
 tenait dans une grande salle richement décorée et peuplées de convives,
 eux-mêmes richement vêtus en amples kimonos aux motifs extravagants. Dans un

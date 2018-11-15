@@ -1,3 +1,5 @@
+# Le coq s’en va {-}
+
 Brunet était au bord des larmes.
 
 Son échange récent avec Hijikata, la disparition de Collache et la blessure de

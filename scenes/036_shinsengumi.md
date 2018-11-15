@@ -1,3 +1,5 @@
+# La meute se sépare {-}
+
 Un vent automnal soufflait sur les hauteurs du château de Aizuwakamatsu. Cette
 province, située plus au Nord de l’île de Honshu, était en proie au siège de
 l’armée impériale qui affirmait au fil des mois son emprise sur le Japon tout

@@ -1,3 +1,5 @@
+# Un duo volontaire {-}
+
 Nos deux marins, après un éphémère séjour à Tsugaru, quittèrent la ville en
 hâte. Ils avaient embarqué, la nuit tombante, sur un bateau américain.
 

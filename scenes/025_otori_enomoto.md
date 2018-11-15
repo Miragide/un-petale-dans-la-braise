@@ -1,3 +1,5 @@
+# Un mystérieux allié {-}
+
 — Le Denshūtai est à votre service, tandis que je m’engage à rallier quelques
 samouraïs du clan d’Aizu à notre cause.
 

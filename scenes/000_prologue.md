@@ -1,3 +1,5 @@
+# Prologue {-}
+
 L’astre solaire embrasait un ciel bleu azur en cette chaude journée d’été.
 Pas un nuage ne venait se dessiner dans l’infini, qui gouvernait, dans sa plus
 pâle neutralité, une bataille des plus sanglante. On pouvait entendre le

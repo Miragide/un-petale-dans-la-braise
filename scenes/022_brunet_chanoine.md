@@ -1,3 +1,5 @@
+# Défaite cuisante ? {-}
+
 — Je suis désolé.
 
 Chanoine peinait à soutenir le regard de Brunet. La nouvelle de l’abdication

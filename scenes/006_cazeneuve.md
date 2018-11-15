@@ -1,3 +1,5 @@
+# Un nouvel ami {-}
+
 Deux mois passèrent. La mission se déroulait sans encombre et le temps
 s’adoucissait, annonciateur d’un printemps radieux et récompensateur des
 efforts fournis tant par les élèves japonais que par des instructeurs français.

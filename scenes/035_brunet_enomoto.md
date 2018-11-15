@@ -1,3 +1,5 @@
+# Un nouvel espoir {-}
+
 Le crépuscule s’annonçait déjà à l’Ouest lorsque nos deux Français, après un
 très court instant de répit, amarèrent à Shinagawa.
 
@@ -149,5 +151,6 @@ logique, scientifique, voulait en avoir le cœur net.
 Après vérification, l’aube se trouvait bien à tribord du vaisseau.
 
 Nul doute : ils voguaient vers le Nord.
-
+\newline
+\newline
 *Fin de la première partie…*

@@ -1,3 +1,5 @@
+# Chute d’Ōsaka {-}
+
 Le reste de la bataille s’étala sur plusieurs journées.
 
 Les premières batailles infructueuses pour les différentes factions du Shōgun

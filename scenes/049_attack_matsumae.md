@@ -1,3 +1,5 @@
+# Prise de Matsumae {-}
+
 Le même jour, une deuxième armée avait été levée pour mener l’offensive sur
 Matsumae. Parmi les troupes, il y avait les inflexibles du *Shinsengumi*,
 Shimada inclus, tous menés par Hijikata qui ouvrait la marche depuis sa

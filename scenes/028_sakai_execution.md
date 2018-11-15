@@ -1,3 +1,5 @@
+# Suicide rituel {-}
+
 Le soleil hivernal de Sakai avait déjà entamé sa descente vers l’Ouest lorsque
 le vice amiral Bergasse se rendait, accompagné du gouverneur d’Ōsaka, sur le
 lieu où se déroulerait l’exécution des Japonais responsable de la mort des

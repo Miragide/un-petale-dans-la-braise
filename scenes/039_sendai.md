@@ -1,4 +1,6 @@
-La flotte d’Enomoto amara à Sendaï. Durant le voyage, elle essuya la perte de
+# Conseil de guerre à Sendai {-}
+
+La flotte d’Enomoto amara à Sendai. Durant le voyage, elle essuya la perte de
 deux navires.
 
 L’un d’eux fit naufrage à cause des intempéries.

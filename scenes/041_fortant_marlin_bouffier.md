@@ -1,3 +1,5 @@
+# Comme les cinq doigts de la main {-}
+
 — On y est… soupira Fortant.
 
 Les trois gaillards démissionnaires arrivèrent à Sendaï, avec la silhoutte de

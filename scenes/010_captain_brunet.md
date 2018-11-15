@@ -1,3 +1,5 @@
+# « Mon capitaine ! » {-}
+
 La mission militaire française avait continué à faire des merveilles. Si bien
 que Tokugawa avait décidé d’étendre leur instruction à tous les clans encore
 fidèle à la cause du gouvernement militaire.

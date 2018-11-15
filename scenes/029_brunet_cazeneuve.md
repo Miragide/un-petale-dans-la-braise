@@ -1,3 +1,5 @@
+# Amical entretien {-}
+
 Un vent printanier soufflait sur les alentours de la caserne à Ōtamura. Brunet,
 dans ses instants de répit, s’isolait, fade, le regard perdu sur les fleurs de
 cerisier qu’il contemplait depuis la fenêtre de sa chambre.
