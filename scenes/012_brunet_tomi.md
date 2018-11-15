@@ -1,6 +1,6 @@
 # Un amour fragile {-}
 
-— Bon appétit ! lança joyeusement Tomi.
+— Bon appétit ! lança joyeusement Tomi.
 
 Brunet l’avait invitée à un comptoir à sushi en ce début d’Automne. Plus tôt,
 ils avaient profité de la même marche que le jour où ils s’étaient rencontrés.
@@ -21,7 +21,7 @@ Le grand brun se remit de ses émotions, buvant une gorgée d’eau modérée po
 essayer de garder contenance auprès de son amie.
 
 — Et vous, vous n’avez pas fini de vous jouer de moi. Vous mettez mon cœur au
-supplice ! plaisanta-t-il d’un air faussement théâtral.
+supplice ! plaisanta-t-il d’un air faussement théâtral.
 
 Elle obtint le pardon de son interlocuteur en affichant ce doux regard et ce
 sourire d’ange qui feraient fondre n’importe qui. La tentation était grande et
@@ -32,7 +32,7 @@ Mais ce que Tomi ignorait — ou semblait ignorer — c’était que Brunet, s�
 gardait une contenance irréprochable. Que Tomi voulait ébranler, encore et
 encore.
 
-— Vous avez un avis sur tout ce qu’il se passe au cœur du Japon ? demanda
+— Vous avez un avis sur tout ce qu’il se passe au cœur du Japon ? demanda
 soudainement Brunet.
 
 Naturellement, il essayait de recentrer la conversation sur un sujet plus
@@ -79,7 +79,7 @@ pas notre place dans ce monde. Je ne suis pas à plaindre, j’ai encore mon pè
 et il est tout ce que j’ai de plus précieux. Dussé-je trouver un mari, il ne
 sera jamais aussi bon, ou alors difficilement. Ce sont les gens comme mon père
 qui méritent d’être des samouraïs, monsieur Brunet. Pas ces voyous qui n’ont
-de « guerrier » que l’apparence.
+de « guerrier » que l’apparence.
 
 — On ne peut plus d’accord.
 
@@ -92,11 +92,11 @@ par une profonde inclinaison du buste, les mains sur les cuisses.
 
 — C’était bon et copieux, ajouta-t-elle.
 
-— M’accorderiez-vous encore un instant ? Mon cœur est lourd et il me faut à
+— M’accorderiez-vous encore un instant ? Mon cœur est lourd et il me faut à
 tout prix le délester, sans quoi je ne pourrai supporter une séparation
 immédiate de votre personne, madame Tomi.
 
-— Qu’y a-t-il, Monsieur Brunet ? Les sushis n’étaient pas bons ? essaya-t-elle
+— Qu’y a-t-il, Monsieur Brunet ? Les sushis n’étaient pas bons ? essaya-t-elle
 de plaisanter.
 
 — Il y a quelque chose que je dois vous montrer.

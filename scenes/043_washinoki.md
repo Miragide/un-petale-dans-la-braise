@@ -24,24 +24,24 @@ l’aide de leur élèves, Kintaro compris.
 
 — Continuez de maintenir le bateau en mouvement et restez derrière le navire
 amiral, commanda Brunet à ses hommes sur le pont. Les ennemis doivent croire
-que le *Kaiyō Maru* est le principal danger !
+que le *Kaiyō Maru* est le principal danger !
 
 A peine eut-il prononcé ces mots qu’un projectile partit des rivages, finissant
 sa course juste devant la coque babord de la frégate et provoquant, en plus
 d’éclaboussures salée, une peur passagère parmi les membres de l’équipage.
 
-— Continuez la manœuvre ! ordonnait Enomoto. Les français vont faire feu.
+— Continuez la manœuvre ! ordonnait Enomoto. Les français vont faire feu.
 
 — Fortant, ajuste l’angle de tir et fait souffler un seul et unique projectile.
 Après quoi nous nous éloignerons pour rester hors d’atteinte des canons
-adverses, le temps que les troupes à terre nous ouvrent la voie !
+adverses, le temps que les troupes à terre nous ouvrent la voie !
 
 Ainsi, le *Kaiyō Maru* continuait sa course, jusqu’à dévoiler la corvette sur
 laquelle se trouvait Brunet. Celle-ci fit feu dans une attaque surprise et
 le projectile vint s’écraser dans un soulèvement de terre enneigée et un fracas
 assourdissant, surprenant les artilleurs adverses campés sur les côtes.
 
-— Chargez ! hurla Hijikata, la lame au clair.
+— Chargez ! hurla Hijikata, la lame au clair.
 
 Menant ses hommes au combat, le vice-commandant démoniaque courrait droit sur
 les troupes déployées en défense. Shimada progressait derrière son chef,
@@ -77,12 +77,12 @@ sur les ponts voisins et déployant des troupes déterminées à en découdre av
 les ennemis tandis que ceux-ci arrivaient en renforts désorganisés, se jetant
 droit dans la gueule du Loup.
 
-— Feu ! ordonna Marlin.
+— Feu ! ordonna Marlin.
 
 Une première salve fusa droit sur les troupes ennemies, laissant certains
 soldats s’affaler sur le sol, recroquevillés dans la douleur.
 
-— Aucun survivant ! lançait Hijikata, dont la lame, teintée de grenat,
+— Aucun survivant ! lançait Hijikata, dont la lame, teintée de grenat,
 reflétait l’astre lunaire sous un aspect macabre.
 
 Bientôt, c’était Cazeneuve qui menait, à revers, une section de dix cavaliers,
@@ -114,4 +114,4 @@ C’était courant lorsqu’on perdait quelques hommes. Car si la mort de millie
 d’hommes était une statistique, la mort d’un seul homme était une tragédie.
 
 — Enterrez-le promptement, ordonna Enomoto. Nous reprenons la progression dès
-l’aube en direction de Hakodate !
+l’aube en direction de Hakodate !

@@ -1,6 +1,6 @@
 # Douloureux sermont {-}
 
-— Brunet !
+— Brunet !
 
 Hijikata avait tonitrué le nom du fautif dans la cour de la forteresse. Brunet
 s’était retourné en direction du bruit, déglutissant, redoutant que quelque
@@ -13,36 +13,36 @@ Hijikata approchait, rouge de colère, se rapprochant dangereusement de Brunet
 qui, frappé de stupeur, ne bougeait pas d’un cil. Le vice-commandant démoniaque
 s’arrêta juste devant le grand brun, fusillant le Français du regard.
 
-— Qu’est-ce que vous avez dit à Nicol ?
+— Qu’est-ce que vous avez dit à Nicol ?
 
-— Pourquoi ? Qu’est-il arrivé ?
+— Pourquoi ? Qu’est-il arrivé ?
 
-— Ne faîtes pas l’innocent, Brunet ! Vous lui avez dit de veiller sur moi. Pour
-*qui* sur Terre vous prenez vous ?
+— Ne faîtes pas l’innocent, Brunet ! Vous lui avez dit de veiller sur moi. Pour
+*qui* sur Terre vous prenez vous ?
 
-— Je ne voulais pas qu’il vous arrive quelque chose, Monsieur Hijikata ! La
+— Je ne voulais pas qu’il vous arrive quelque chose, Monsieur Hijikata ! La
 république a besoin d’hommes comme vous !
 
 — C’est une raison pour demander à l’un de vos subalternes de se sacrifier pour
-moi ? Je vous le redemande : pour qui vous prenez vous ?!
+moi ? Je vous le redemande : pour qui vous prenez vous ?!
 
-— Je ne voulais pas vous perdre !
+— Je ne voulais pas vous perdre !
 
-— Vous ne comprenez *rien* ! La guerre ne cède pas sa place aux sentiments et
-aux volontés personnelles, Brunet ! Et puis qui êtes-vous pour juger de la
-valeur de la vie de qui que ce soit ici ? Vous n’avez aucun lien hiérarchique
+— Vous ne comprenez *rien* ! La guerre ne cède pas sa place aux sentiments et
+aux volontés personnelles, Brunet ! Et puis qui êtes-vous pour juger de la
+valeur de la vie de qui que ce soit ici ? Vous n’avez aucun lien hiérarchique
 avec ma personne ! Vous n’avez pas à décider de ceux qui doivent me protéger
-sous quelque condition que ce soit !
+sous quelque condition que ce soit !
 
 — Je…
 
-— Ne me coupez pas ! Restez derrière vos canons à faire pleuvoir vos misérables
+— Ne me coupez pas ! Restez derrière vos canons à faire pleuvoir vos misérables
 obus et à envoyer les autres à la mort à votre place ; laissez les guerriers
 mourir au devant des horreurs, Brunet. Vous n’appartenez pas à notre monde,
-vous ne comprendrez *jamais* l’essence de la chevalerie japonaise ! *Jamais* !
+vous ne comprendrez *jamais* l’essence de la chevalerie japonaise ! *Jamais* !
 Je me permettrais même que si vous aviez effectivement fait partie du
 *Shinsengumi* comme j’ai pu le dire, Brunet, je vous aurais déjà contraint au
-*seppuku* pour l’opprobre dont vous venez de vous couvrir !
+*seppuku* pour l’opprobre dont vous venez de vous couvrir !
 
 — Mais…
 

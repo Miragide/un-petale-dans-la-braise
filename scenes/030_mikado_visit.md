@@ -1,4 +1,4 @@
-# Nouvelle collaboration ? {-}
+# Nouvelle collaboration ? {-}
 
 — Ce ne sont que des formalités.
 
@@ -79,12 +79,12 @@ de s’enquérir de l’état de santé de Napoléon III.
 Ce n’est, finalement, que lorsque les trois Français purent quitter l’enceinte
 du palais impérial — non sans que Bergasse ne recevât, encore et toujours,
 congratulations sur congratulations — que Roches, rasséréné, se permit telle
-remarque néanmoins :
+remarque néanmoins :
 
 — Le Shōgun avait raison. Le jeune Empereur est manipulé. Je n’ai perçu aucune
 trace d’intelligence dans sa personne.
 
-Bergasse, impassible au demeurant, de répondre :
+Bergasse, impassible au demeurant, de répondre :
 
 — Tout le monde s’accorde à penser — mais non à dire — que le jeune Empereur
 doive s’attendre à une farouche résistance dans le Nord de l’archipel.

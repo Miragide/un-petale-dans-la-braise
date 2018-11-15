@@ -9,26 +9,26 @@ Ces derniers se retrouvaient dans un bâtiment annexe à la caserne qui leur
 le capitaine Chanoine était assisté de chacun de ses hommes, avec un tout
 nouvel élément se tenant à sa gauche. Le nouveau venu était un jeune homme
 vigoureux et de taille moyenne. S’il ne portait pas l’uniforme d’officier, son
-appartenance à l’armée française était à n’en pas douter : képi décoré, capote
+appartenance à l’armée française était à n’en pas douter : képi décoré, capote
 bleue ornée de motifs en nœuds hongrois, pantalon garance. Et il avait la même
 prestance que tous ses futurs collègues, avec la moustache soigneusement
 taillée en guidon alors qu’il était rasé à blanc. Le regard rieur et avenant,
 il passait en revue ses futurs collègues qui lui accordèrent la même
 sympathie.
 
-— Messieurs ! introduit Chanoine, j’ai aujourd’hui l’immense plaisir de vous
+— Messieurs ! introduit Chanoine, j’ai aujourd’hui l’immense plaisir de vous
 présenter le brigadier André Cazeneuve, qui a apporté avec lui les premiers
 chevaux arabes en cadeau au Shōgun pour l’exportation des vers à soie japonais
 vers la France. Je compte sur chacun de vous pour fournir à notre ami Cazeneuve
 toutes les informations nécessaires à son intégration et au bon déroulement de
-ses fonctions. Si tu as quelque chose à ajouter, Cazeneuve ?
+ses fonctions. Si tu as quelque chose à ajouter, Cazeneuve ?
 
 — Merci, répondit chaleureusement l’intéressé. Ma mission consistera donc à
 étudier le croisement optimal entre les races chevalines locales et les
 destriés importés. Par la suite, j’apporterai mon soutien à la formation des
 bataillons de cavalerie. Je vous remercie humblement de votre accueil.
 
-On entendit des applaudissement et quelques « bienvenue ! » de la part des
+On entendit des applaudissement et quelques « bienvenue ! » de la part des
 instructeurs, tandis que tout un chacun se présentait à Cazeneuve.
 
 Un homme de plus avait rejoint les instructeurs. Brunet, qui était resté
@@ -43,12 +43,12 @@ amicale.
 
 — Tu es déjà venu au Japon ? demanda Brunet.
 
-— Négatif, mon lieutenant ! répondit Cazeneuve, tout sourire.
+— Négatif, mon lieutenant ! répondit Cazeneuve, tout sourire.
 
 — On est deux. J’espère que nous ferons du bon travail ensemble. Au plaisir
 d’échanger avec toi.
 
-— Plaisir partagé, mon lieutenant !
+— Plaisir partagé, mon lieutenant !
 
 — Brunet, Descharmes, j’ai à vous parles ajouta Chanoine.
 
@@ -71,11 +71,11 @@ personnalité politique la plus puissante du Japon.
 
 — Nous serons accompagné de Monsieur l’ambassadeur Roches. Il voudrait que tu
 emmènes avec toi tes croquis pour les montrer aux japonais. Est-ce que tu
-acceptes ?
+acceptes ?
 
 — Avec joie. C’est un honneur, répondit le grand brun.
 
-— Descharmes ?
+— Descharmes ?
 
 — De même. Honneurs partagés, mon capitaine.
 
@@ -87,6 +87,6 @@ l’instruction de leurs troupes est entre de bonnes mains. Merci à vous deux.
 Chanoine gratifia les deux gaillards tapes discrètes sur leurs épaules, qui
 s’échangèrent un regard complice.
 
-— Comment tu te sens ? demanda Descharmes.
+— Comment tu te sens ? demanda Descharmes.
 
 — Impatient, de répondre Brunet.

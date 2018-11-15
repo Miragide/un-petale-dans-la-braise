@@ -22,7 +22,7 @@ donner le meilleur de nous-mêmes, dans l’intérêt de nos deux pays.
 prit les devant.
 
 Tous suivirent leur hôte japonais alors que d’autres autochtones pointaient le
-bout de leur nez, lançant des « bienvenue ! » a l’intention des français qui,
+bout de leur nez, lançant des « bienvenue ! » a l’intention des français qui,
 agréablement surpris, répondaient sur le même ton, le sourire aux lèvres. Même
 Brunet était gagné par cette euphorie soudaine, alors que les jeunes officiers
 se tenaient les uns derrière les autres pour accorder une poignée de main
@@ -85,7 +85,7 @@ connaître. Ce seront vos principaux interlocuteurs. Demain, nous retournerons
 à Yokohama récupérer nos effets personnels. Il y a eu quelques complications
 avec la douane mais j’ai bon espoir que ça ne retarde pas notre mission.
 
-Puis d’ajouter :
+Puis d’ajouter :
 
 — Brunet, j’ai à te parler.
 
@@ -95,7 +95,7 @@ instructeurs.
 
 — Mon capitaine ?
 
-— Comment tu te sens ?
+— Comment tu te sens ?
 
 — On ne peut mieux.
 
@@ -104,7 +104,7 @@ fonctions principales, mais qui sont de la plus haute importance.
 
 Le grand brun releva le menton, inspirant et opinant du chef.
 
-— J’écoute ?
+— J’écoute ?
 
 — J’ai besoin de tes talents d’ingénieur pour améliorer les différents arsenaux
 que Monsieur l’ambassadeur Roches a fait construire à Yokohama ainsi qu’à la
@@ -113,11 +113,11 @@ mission. Est-ce que je peux compter sur toi ?
 
 — Assurément, mon capitaine.
 
-— Parfait ! s’exclama Chanoine, je te transmettrai les établissements à
+— Parfait ! s’exclama Chanoine, je te transmettrai les établissements à
 visiter. Nous nous reparlons plus tard.
 
 Brunet opina du chef tandis que Chanoine tournait des talons, mains dans le
-dos, déjà préoccupé par ses fonctions de capitaine qu’il aurait à remplir : de
+dos, déjà préoccupé par ses fonctions de capitaine qu’il aurait à remplir : de
 la paperasse, de l’administratif, de l’écriture de rapports. La dure vie de
 gradé que celle de finir sclérosé derrière un bureau sans connaître
 l’excitation du terrain.
@@ -129,8 +129,8 @@ s’expliquer, le garçon avait attendu que l’officier se libère.
 
 La mine amicale de ce garçon incita Brunet à s’approcher.
 
-– Bonjour ! s’exclama le jeune garçon. Je m’appelle Kintaro Tajima ! Je suis
-enchanté de faire votre connaissance !
+– Bonjour ! s’exclama le jeune garçon. Je m’appelle Kintaro Tajima ! Je suis
+enchanté de faire votre connaissance !
 
 Il s’était exprimé dans un français remarquable, quoique scolaire, mais
 qui ne déplut guerre au grand brun, qui lui accorda une franche poignée de
@@ -171,7 +171,7 @@ caractère humble et respectueux du jeune homme.
 Le grand brun souffla un rire amusé. Ce jeune homme, plein de ressources, lui
 plaisait déjà. Pourvu que cet enthousiasme continuât, pensait-il.
 
-— Avec grand plaisir, jeune homme. Mais quel est votre grade ?
+— Avec grand plaisir, jeune homme. Mais quel est votre grade ?
 
 — Je suis lieutenant d’artillerie. Vous allez m’apprendre à utiliser les
 canons ? Sans ça, nous ne pourrons nous défendre contre les clans du Sud.
@@ -180,12 +180,12 @@ canons ? Sans ça, nous ne pourrons nous défendre contre les clans du Sud.
 l’utilisation d’artillerie lourde aussi bien dans l’érection de fortifications.
 Je pourrais vous en parler des heures.
 
-— Peut-être que vous pouvez me dire « tu » ?
+— Peut-être que vous pouvez me dire « tu » ?
 
-— C’est-à-dire ?
+— C’est-à-dire ?
 
 — Vous êtes mon aîné et mon professeur. C’est moi qui vous dois le respect,
-professeur ! Et si vous me parlez aussi poliment, j’ai le sentiment d’être
+professeur ! Et si vous me parlez aussi poliment, j’ai le sentiment d’être
 votre égal. Enfin, c’est la coutume japonaise…
 
 — Il nous faut garder un certain protocole dans nos échanges. Je veux bien te
@@ -207,7 +207,7 @@ s’aqissait de se détendre ; pour d’autres, de profiter du temps libre afin
 s’instruire.
 
 — Tu saurais me conseiller, demanda Brunet, quelque manuel ou quelque méthode
-pour que je puisse apprendre votre langue ?
+pour que je puisse apprendre votre langue ?
 
 — Suivez-moi, répondit promptement le jeune homme.
 
@@ -240,7 +240,7 @@ le sourire aux lèvres alors qu’il s’arrêtait à une page au hasard.
 — C’est excellent, ajouta-t-il.
 
 — N’est-ce pas ! Je dois m’absenter. Ravi de faire votre connaissance, monsieur
-Brunet !
+Brunet !
 
 Kintaro ne demanda pas son reste. Il laissa Brunet seule dans l’enceinte
 annexe. L’officier profita d’un instant de répis pour observer la quiétude des
@@ -252,7 +252,7 @@ disait-on, provenait de la langue chinoise.
 
 Le reste de la journée se déroula dans le calme. On présenta à Brunet et aux
 autres instructeurs leur chambre. Chacune, tant à la grande surprise et à la
-déception — dissimulée — des Français, possédait un style à l’occidentale :
+déception — dissimulée — des Français, possédait un style à l’occidentale :
 un lit avec un sommier, une armoire en bois sombre et un petit bureau. Un
 ensemble sobre qui rappelait son pays natal à Brunet.
 

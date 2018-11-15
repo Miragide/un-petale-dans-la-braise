@@ -18,7 +18,7 @@ troupes impériales.
 
 Reculé des premières lignes, Fortant et quelques-uns de ses élèves officiers
 s’occupaient d’envoyer des obus sur les lignes d’artilleries ennemies tout au
-mieux. Le champ de bataille était semblable à celui de l’Est : les
+mieux. Le champ de bataille était semblable à celui de l’Est : les
 impérialistes avaient établi des tranchées et des palissades de l’autre côté du
 pont. Mais le début des autres hostilités qui s’était fait entendre plus loin
 avait engagé les ennemis à ouvrir le feu. La bataille avait débuté par des
@@ -32,11 +32,11 @@ en plein dans les troupes shōgunales.
 — Professeur Fortant ! Il faut absolument essayer d’atteindre les lignes
 ennemies avec nos canons ! criait un élève officier.
 
-— Affirmatif ! Augmentez l’angle de tir et mettez plus de poudre. Notre
-infanterie tient position, mais pour combien de temps encore ?
+— Affirmatif ! Augmentez l’angle de tir et mettez plus de poudre. Notre
+infanterie tient position, mais pour combien de temps encore ?
 
-Pour combien de temps encore ? Hijikata grimaça de rage. Son sabre érodé par
-l’hémoglobine de ses victimes était-il ainsi dépassé ?
+Pour combien de temps encore ? Hijikata grimaça de rage. Son sabre érodé par
+l’hémoglobine de ses victimes était-il ainsi dépassé ?
 
 Il bouait de rage, continuant sa danse macabre, furieux, luttant de tout son
 être dans une bataille qui le faisait voir rouge. C’était le seul moyen pour ne
@@ -48,7 +48,7 @@ environnant, eux-mêmes craignaient pour leur sursis.
 Les hommes de Fortant firent feu. Le boulet termina sa chute dans le cour
 d’eau. La portée était insuffisante.
 
-— Il faut nous rapprocher ! constata l’officier.
+— Il faut nous rapprocher ! constata l’officier.
 
 — C’est vain… admit Fortant.
 

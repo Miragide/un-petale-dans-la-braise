@@ -4,23 +4,23 @@ On frappa doucement, mais répétitivement, à la porte de la chambre de Brunet.
 Le capitaine fraîchement promu avait la particularité d’avoir le sommeil léger
 en plus d’être énergique. Il ne se fit pas prier pour ouvrir sa porte.
 
-— Kintaro ? Descharmes ? Que se passe-t-il ?! demanda le grand brun.
+— Kintaro ? Descharmes ? Que se passe-t-il ?! demanda le grand brun.
 
 Son ton était presque agacé, alors qu’il vêtait en vitesse de quoi avoir l’air
 présentable, s’empressant d’allumer une lampe à huile pour dissiper l’obscurité
-ambiante. Kintaro répondit sur un ton professionnel :
+ambiante. Kintaro répondit sur un ton professionnel :
 
 — Le Shōgun a répondu au coup d’état instrumenté par les provinces du Sud. Il
 requiert notre présence exprès pour plannifier une attaque sur le palais de
 Satsuma.
 
-— Il est quelle heure ? demanda Brunet.
+— Il est quelle heure ? demanda Brunet.
 
 — Six heures et quelques, de répondre Descharmes.
 
 — Il nous faut proposer un plan en vitesse avant de mener une attaque dans la
 nuit au plus tard, ajouta Kintaro. Ōtori et les autres sont partis pour Ōsaka.
-Tout est allé si vite !
+Tout est allé si vite !
 
 Brunet ne répondit pas, préoccupé à rassembler ses affaires le plus promptement
 possible. Et dans leur vivacité, ils étaient déjà sur leurs selles, galopant
@@ -31,13 +31,13 @@ impolitesse de l’autre jour à la cantine.
 
 — Cesse de dire des sornettes, Kintaro. Tu es un jeune homme plein de promesses
 et je te porte beaucoup d’affection. Quelle importance pour cet accroc que tu
-dénonces pour une personne de ta trempe qui cultive l’honneur et l’intégrité ?
+dénonces pour une personne de ta trempe qui cultive l’honneur et l’intégrité ?
 D’autant plus que je n’ai ressenti aucune insulte de ta part. Alors
-concentre-toi sur l’instant présent. Le devoir avant tout, n’est-ce pas ?
+concentre-toi sur l’instant présent. Le devoir avant tout, n’est-ce pas ?
 
 — C’est beau, Brunet, admit Descharmes. Tu as la classe.
 
-— C’est l’urgence de la situation qui vous fait ça ? questionna Brunet.
+— C’est l’urgence de la situation qui vous fait ça ? questionna Brunet.
 
 — Encore un peu la ganache défaite, disons. Et c’est peut-être le dernier
 moment convivial que nous partageons, mon capitaine.
@@ -56,7 +56,7 @@ Roches qui avait rassemblé les documents nécessaires à l’ordre du jour.
 
 — Merci d’être venu aussi vite, fit Roches, la mine grave.
 
-— Qu’en est-il des autres ? demanda Brunet.
+— Qu’en est-il des autres ? demanda Brunet.
 
 — Chanoine et le reste des instructeurs sont partis pour Ōsaka avec le gros
 des troupes. Le *Denshūtai* et plusieurs autres bataillons sont en route. On
@@ -70,7 +70,7 @@ l’Empereur.
 pouvoir pour soutenir le Shōgun dans cette passe difficile, nous ne pouvons
 plus reculer.
 
-— Ils sont combien, au palais de Satsuma ? demanda le grand brun.
+— Ils sont combien, au palais de Satsuma ? demanda le grand brun.
 
 — Autour de 300, répondit Roches. Le Shōgun veut mener une attaque
 « punitive ».

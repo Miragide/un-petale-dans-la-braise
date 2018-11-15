@@ -29,7 +29,7 @@ Japon unifié pour rayonner à l’international.
 
 — J’espère que Nicol va bien, se demanda-t-il à voix haute.
 
-— « Merde ! » répondit un Japonais qui avait assimilé le juron de Collache.
+— « Merde ! » répondit un Japonais qui avait assimilé le juron de Collache.
 
 Des éclats de rires firent trembler les nattes sous leurs pieds.
 
@@ -45,7 +45,7 @@ Il entendit qu’on l’avait appelé. Collache fit le tour de sa cellule, se
 penchant, se cambrant, plaquant son oreille sur le sol. Il ne trouvait pas la
 source de cet appel.
 
-— Eh !
+— Eh !
 
 Il vit soudain une planche de sa cloison se défaire, laissant apparaître une
 tête souriante.
@@ -65,10 +65,10 @@ s’accélérèrent pour le Français, qui paru à maintes reprises devant un co
 de guerre qui voulait lui faire dire que toute son entreprise a été à
 l’initiative du gouvernement.
 
-— Mais je vous dit que j’ai démissionné ! C’est pour aider Monsieur Brunet ! Et
-puis, rendez-vous à l’évidence ! Que vont faire les Britanniques lorsqu’il vous
-auront noyé sous vos dettes ? Ils vont s’immiscer dans vos affaires et vous
-dicter leur loi. Et vous pensez que la France a agi contre vos intérêts ? On
+— Mais je vous dit que j’ai démissionné ! C’est pour aider Monsieur Brunet ! Et
+puis, rendez-vous à l’évidence ! Que vont faire les Britanniques lorsqu’il vous
+auront noyé sous vos dettes ? Ils vont s’immiscer dans vos affaires et vous
+dicter leur loi. Et vous pensez que la France a agi contre vos intérêts ? On
 a fait de vos hommes des soldats rompus aux manœuvres européennes… On vous a
 transmis un savoir-faire là où les autres n’ont été que de vulgaires marchands
 de mort…!
@@ -80,11 +80,11 @@ accorder un sursis, on lui offrait du poulet pour son repas.
 Mais ce réconfort fut éphémère. La sentence était irrévocable comme il le
 présentait, alors qu’il parut à nouveau devant le même conseil de guerre.
 
-— Vous vous rappelez de l’incident de Sakai, Monsieur Collache ?
+— Vous vous rappelez de l’incident de Sakai, Monsieur Collache ?
 
 — Oui.
 
-— Qu’a-t-on fait aux Japonais qui ont tué onze de vos Français ?
+— Qu’a-t-on fait aux Japonais qui ont tué onze de vos Français ?
 
 — On les a exécutés.
 
@@ -93,7 +93,7 @@ Français qui a pris les armes contre un Japonais.
 
 — Vous allez m’exécuter.
 
-— Juste !
+— Juste !
 
 Et on le jeta une dernière fois en cellule, jusqu’au lendemain où on prévoyait
 de lui couper la tête.
@@ -102,7 +102,7 @@ Les derniers instants que Collache avait passés avec ce bon inconnu eurent ét�
 gais. Il ne se souciait pas du sort qui lui était réservé. Il fit des adieux
 quelque peu précipités à ses camarades alors qu’on le conduisait à l’échafaud.
 
-— À bientôt sous les flôts !
+— À bientôt sous les flôts !
 
 Quatre commis impériaux mirent Collache dans un palanquin et le soulevèrent,
 jusqu’à le porter à une destination qui lui était inconnue.

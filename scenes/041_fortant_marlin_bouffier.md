@@ -25,7 +25,7 @@ Ils s’arrêtèrent à un comptoir où l’on servait de la soupe aux nouilles
 chaudes. Un repas bienvenu en cette température nordique presque glaçante, qui
 fit monter les larmes à Fortant.
 
-— Ça va pas, mon gars ? demanda Bouffier à Fortant.
+— Ça va pas, mon gars ? demanda Bouffier à Fortant.
 
 — Oh, je sais pas, je… C’est la pression qui retombe, tu comprends.
 
@@ -59,7 +59,7 @@ sa flotte qui redescendra pour atteindre la baie de Hakodate et mener une
 attaque éventuelle par la mer et nous permettre de percer par la terre.
 
 — À ce sujet, intervint Cazeneuve en portant son regard sur Kintaro, que
-penses-tu de Monsieur Hijikata ?
+penses-tu de Monsieur Hijikata ?
 
 — J’en pense qu’une partie de moi aurait aimé intégrer le *Shinsengumi*. Bien
 qu’ils avaient une sale réputation parmi les gens du peuple et surtout les
@@ -68,15 +68,15 @@ impérialistes. Ils ont tué beaucoup de monde, et certains de leurs meurtres
 
 — Comme… se risqua Brunet.
 
-— Comme ?
+— Comme ?
 
 — Comme le seigneur Tokugawa. Il n’a pas fait des choses toutes roses non plus,
 d’après ce que j’ai pu entendre parfois à son sujet. Mais qui en ce bas monde
-peut se targuer d’être irréprochable ?
+peut se targuer d’être irréprochable ?
 
 — Et puis, ajouta Cazeneuve, dès lors que l’on participe à une guerre, on a
 forcément du sang sur les mains et des morts sur la conscience. Il n’y a pas
-de « gentils » ou de « méchants » comme dans les contes.
+de « gentils » ou de « méchants » comme dans les contes.
 
 Mais tous se turent. On commençait à se rameuter dans un coin de la cour.
 Brunet vit trois silhouettes émerger d’un bain de foule, après quelques mains
@@ -93,14 +93,14 @@ démissionnaires qui lui accordèrent une accolade groupée.
 
 — On est un peu en retard ! précisa Bouffier.
 
-— Je ne pensais pas que vous suivriez !
+— Je ne pensais pas que vous suivriez !
 
 — Tu n’es pas le seul à avoir prêté serment au Shōgun, fit Fortant.
 
 Il agrippa Brunet par l’échine d’une poigne glacée, plantant un regard embué
 dans le sien.
 
-— Pourquoi tu ne nous as pas emmenés avec toi ? demanda-t-il à Brunet.
+— Pourquoi tu ne nous as pas emmenés avec toi ? demanda-t-il à Brunet.
 
 Le grand brun se raidit, la respiration coupée. Il sentait une once de colère
 dans le regard de son collégue.

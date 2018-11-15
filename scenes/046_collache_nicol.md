@@ -6,7 +6,7 @@ hâte. Ils avaient embarqué, la nuit tombante, sur un bateau américain.
 Leur propriétaire, en effet, était venu leur faire savoir qu’un ordre
 d’arrestation eut été émis contre eux.
 
-— Sans doute un coup fourré de Bergasse ! se plaint Collache.
+— Sans doute un coup fourré de Bergasse ! se plaint Collache.
 
 — Ça n’est pas un coup fourré… répondit Nicol. On n’a pas attendu que notre
 démission soit acceptée avant de partir. Ça nous met dans la mouise.
@@ -18,7 +18,7 @@ la nature.
 
 Ce spectacle fit pouffer de rire Nicol.
 
-— Arrête de rire ! gronda Collache. Pourquoi tu te fous de ma gueule comme ça ?
+— Arrête de rire ! gronda Collache. Pourquoi tu te fous de ma gueule comme ça ?
 
 — Tu te donnes un genre, répondit Nicol.
 
@@ -27,7 +27,7 @@ monsieur !
 
 — Et qu’est-ce qu’ils te disent, les fonds marins.
 
-— Chut… Chut ! Ah ! Oui ! « Nicol est de l’autre bord, évite de dormir avec
+— Chut… Chut ! Ah ! Oui ! « Nicol est de l’autre bord, évite de dormir avec
 lui ».
 
 Ce à quoi Nicol répondit par un poing sur l’avant bras de Collache, jurant,
@@ -43,14 +43,14 @@ troupes d’Enomoto. Nicol expliqua la situation et on les escorta jusqu’à
 la forteresse en étoile de Goryokaku, où Brunet discutait avec les autres
 officiers dans la cour intérieur.
 
-— Ça, par exemple… constata le grand brun. Aurions-nous lancé une tendance ?
+— Ça, par exemple… constata le grand brun. Aurions-nous lancé une tendance ?
 
 Il toisa du regard les deux marins. Collache et Nicol, s’il étaient d’ordinaire
 extravertis, étaient assez intimidé par ce grand homme de l’armée de Terre.
 Sans compter Cazeneuve, Fortant, Marlin et Bouffier qui, muets, dardaient
 un regard curieux sur les deux nouveaux venusx
 
-— À qui ai-je l’honneur, donc ? poursuivit Brunet.
+— À qui ai-je l’honneur, donc ? poursuivit Brunet.
 
 — Eugène Collache, officier démissionnaire de la marine française.
 
@@ -64,17 +64,17 @@ s’est dit qu’on pouvait vous rejoindre.
 
 — C’est non.
 
-— Mais pourquoi ?
+— Mais pourquoi ?
 
 — Avec ce que vous venez de faire, vous avez très certainement la légation
 française sur le dos, qui est davantage favorable aux impérialistes qu’à
 notre faction. Ici, ça n’est pas l’armée française. C’est une affaire qui
 ne concerne que les anciens officiers et sous-officiers de la mission militaire
 au service du Shōgun. Je compromettrais ma situation en vous acceptant, vous
-comprenez ?
+comprenez ?
 
-— Mais je vous dit que j’ai donné ma démission avec mon ami, monsieur ! En
-plus vous avez beaucoup de navires à piloter ! Laissez-nous vous aider… Je
+— Mais je vous dit que j’ai donné ma démission avec mon ami, monsieur ! En
+plus vous avez beaucoup de navires à piloter ! Laissez-nous vous aider… Je
 vous l’implore…
 
 Il se mit à genoux, suppliant Brunet. Ce dernier commençait à rougir
@@ -82,9 +82,9 @@ d’agacement.
 
 Nicol s’empressa de le relever, l’aggripant sous les aiselles.
 
-— Collache, putain, arrête tes conneries, c’est pas une pièce de théâtre !
+— Collache, putain, arrête tes conneries, c’est pas une pièce de théâtre !
 
-— Non ! Je veux rester ici ! J’ai traversé la moitié du Japon exprès pour ça !
+— Non ! Je veux rester ici ! J’ai traversé la moitié du Japon exprès pour ça !
 C’est scandaleux !
 
 — Inutile d’insister, rétorqua sèchement Brunet. Vous aggravez votre cas.
@@ -96,31 +96,31 @@ marins en dehors de la forteresse.
 
 Collache et Nicol se regardèrent, la mine déconfite.
 
-— Mais quelle ordure ! protesta Collache. « C’est une affaire qui concerne la
-grande muette, monsieur ! » imita-t-il sur un ton dédaigneux.
+— Mais quelle ordure ! protesta Collache. « C’est une affaire qui concerne la
+grande muette, monsieur ! » imita-t-il sur un ton dédaigneux.
 
 — Je sais… répondit Nicol. J’avais envie de le frapper, je te jure.
 
 Les deux rebroussaient chemins en trainant des pieds. Collache de demander
 à son ami :
 
-— C’est quoi, le plan B ?
+— C’est quoi, le plan B ?
 
 — J’en sais rien. On va trouver du travail je sais pas où dans les environs.
 
-— Pourquoi ? Tu veux rester ici ?
+— Pourquoi ? Tu veux rester ici ?
 
 — On va le forcer à nous accepter, tu vas voir.
 
-— Mais t’es fou, dis ?
+— Mais t’es fou, dis ?
 
 — Et toi tu abandonnes vite.
 
-— Non ! C’est que j’ai pas envie de travailler avec une tête de con !
+— Non ! C’est que j’ai pas envie de travailler avec une tête de con !
 
 — T’es dur, là, quand même.
 
-— Car lui il l’est pas ?!
+— Car lui il l’est pas ?!
 
 Mais sa question était restée en suspend. De retour au port, ils constatèrent
 que le bateau américain, qui les avait déposés, n’était plus ammaré.

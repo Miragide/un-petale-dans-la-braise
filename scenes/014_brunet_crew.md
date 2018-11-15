@@ -14,7 +14,7 @@ Au refectoire, Brunet était attablé avec, à ses côtés, Kintaro et Fortant. 
 trois, bercés par de brouhaha ambiant, mangeait leur soupe — les fraîches
 températures hivernales revenant — dans un silence pesant.
 
-— Ça va ? demanda Kintaro, l’air de rien, alternant son regard entre les deux
+— Ça va ? demanda Kintaro, l’air de rien, alternant son regard entre les deux
 instructeurs.
 
 Brunet hocha silencieusement la tête. Fortant, lui, se contenta d’un hochement
@@ -56,7 +56,7 @@ voir à l’œuvre le fruit de notre entreprise ou le *Denshūtai* de Ōtori en
 action.
 
 — Écoutez, coupa Brunet, je vais répéter à Kintaro ce que j’ai dit à certains
-de nos gaillards le premier jour où nous avons foulé le sol japonais : que nous
+de nos gaillards le premier jour où nous avons foulé le sol japonais : que nous
 ne nous mêlerions en aucun cas de vos affaires politiques. J’ai non moins de
 respect pour votre empereur que pour les hautes instances de ce merveilleux
 pays et je dois dire que j’ai moi-même voué ma vie à son altesse impériale

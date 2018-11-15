@@ -11,7 +11,7 @@ la décision d’alterner, se retrouvant à son tour à hisser la lourde fonte,
 ses bottes s’enfonçant dans une neige épaisse et glaçante pour ses doigts de
 pieds.
 
-— Courage, mes braves ! héla-t-il, le front poisseux.
+— Courage, mes braves ! héla-t-il, le front poisseux.
 
 Il était accompagné de Marlin qui le précédait. Lui-même était affairé à
 déplacer une pièce d’artillerie, ses mains gantées poussant la base d’un
@@ -20,19 +20,19 @@ gigantesque cylindre soutenu par deux grandes roues noires.
 — Je me demande comment s’en tirent les trois autres, fit-il remarquer à
 Brunet.
 
-— Certainement très bien. Ce sont nos gaillards !
+— Certainement très bien. Ce sont nos gaillards !
 
-— Nous, les Japonais, on sait aussi se dèfendre, vous savez ?
+— Nous, les Japonais, on sait aussi se dèfendre, vous savez ?
 
 Kintaro, qui était tout derrière, avait entendu les échanges entre les deux
 Français qui rirent en cœur.
 
 – Ainsi donc, reprit Marlin, se poursuit donc cette amitié francojaponaise.
-Oh, mon Dieu, que c’est lourd !
+Oh, mon Dieu, que c’est lourd !
 
-— Tu parles de l’amitié, ou de la bitte que tu pousses ? demanda Brunet.
+— Tu parles de l’amitié, ou de la bitte que tu pousses ? demanda Brunet.
 
-— Tu fais de l’humour, toi, maintenant ?
+— Tu fais de l’humour, toi, maintenant ?
 
 — Situation indécente oblige. En attendant la bataille…
 
@@ -40,7 +40,7 @@ Les hommes continuaient leur progression. Au devant, Shimada, dont la taille
 dépassait le garot du cheval de Hijikata, marchait aux côtés de ce dernier.
 
 — Commandant, pensez-vous que Ichimura aura l’honneur de nous assister dans
-les batailles futures ?
+les batailles futures ?
 
 — Négatif, répondit Hijikata. Je suis très dur et très impatient avec lui, mais
 je ne me le pardonnerais pas s’il lui arrivait quelque chose. C’est l’une des
@@ -56,7 +56,7 @@ Les troupes vinrent à s’amasser au Nord de Matsumae, où la silhouette du
 château était à peine distinguable.
 
 Les commandants des différentes unités s’étaient réunis pour récapituler le
-plan d’attaque. Il n’y avait qu’un objectif :
+plan d’attaque. Il n’y avait qu’un objectif :
 
 — Le château, énonça Ōtori, est notre principal objectif. C’est ici que sont
 déployés les principaux canons. La brigade d’artillerie dirigée par le général
@@ -66,7 +66,7 @@ pour attaquer par l’Est et prendre le château. Lorsque vous aurez dressé
 l’étendard de la sincérité, l’équipe de Brunet cessera le feu et la brigade
 de Marlin sonnera la charge pour investir la ville jusqu’au château et
 neutraliser les dernières forces adverses valides. Dois-je récapituler une
-dernière fois, ou tout le monde sait ce qu’il a à faire ?
+dernière fois, ou tout le monde sait ce qu’il a à faire ?
 
 Sa question n’obtint en réponse que le silence approbateur des différents
 subordonnés.
@@ -80,7 +80,7 @@ s’amassèrent autour de lui.
 — Déployez les canons et commencez à faire feu dès que l’unité d’infanterie
 du *Denshūtai* sera correctement déployée, ordonna le grand brun.
 
-Tous répondirent par un « Oui ! » tonnant, preuve de leur détermination et de
+Tous répondirent par un « Oui ! » tonnant, preuve de leur détermination et de
 leur moral au plus haut malgré cette température digne des plus rudes hivers.
 Rien que le fait de combattre aux côtés de leur professeur Français les
 poussaient inévitablement à donner le meilleur d’eux-mêmes, jusqu’à la mort.
@@ -93,7 +93,7 @@ Il planta un regard autoritaire et déterminé dans celui de chacun de ses
 hommes, en particulier le grand Shimada qui ne montrait aucune peur, aucune
 émotion traitre.
 
-— En marche ! cria-t-il presque.
+— En marche ! cria-t-il presque.
 
 Puis, en rang, ils s’éloignaient vers l’Est, Brunet les suivant du regard.
 
@@ -116,7 +116,7 @@ Plus le moment fatidique approchait, plus l’attente semblait interminable pour
 les officiers et les troupes du *Denshūtai*, dont le souffle glacé fumait
 abondamment et les extrêmités des articulations s’engourdissaient presque.
 
-— Feu à volonté ! hurla Brunet.
+— Feu à volonté ! hurla Brunet.
 
 Les troupes commencèrent à marcher. Les mèches se consumaient en même temps
 que la poudre qui, dans un souffle à en faire bourdonner la fonte, explosa,
@@ -127,7 +127,7 @@ Mais les ennemis étaient alertés puisque c’était au tour des canons adverse
 répondre, avec un tir qui raflait presque l’artillerie de Brunet alors que des
 fusilliers émergeait sur le champ de bataille, en formation, prêts à tirer.
 
-— *Denshūtai*, en formation ! commanda Ōtori.
+— *Denshūtai*, en formation ! commanda Ōtori.
 
 À leur tour, les rebelles se déployaient, fusils dressés, et avançaient
 courageusement dans la poudreuse au milieu des échanges de tir d’obus.
@@ -146,8 +146,8 @@ Bientôt, dans la ville de Matsumae, on entendait des coups de feux mêlés aux
 cris, les derniers civils se barricadant chez eux et le peu de troupes
 impériales choyant sous les coups du *Shinsengumi*.
 
-— Shimada ! feula Hijikata. Emmène la moitié des hommes jusqu’à l’entrée Sud du
-château ! Les autres, avec moi, sus à l’entrée Est !
+— Shimada ! feula Hijikata. Emmène la moitié des hommes jusqu’à l’entrée Sud du
+château ! Les autres, avec moi, sus à l’entrée Est !
 
 Et dans une approbation générale, le *Shinsengumi* se divisait dans l’ordre,
 chacun ayant connaissance de son supérieur, et les deux groupes continuèrent
@@ -166,12 +166,12 @@ d’un mélange de terre humide et de neige. Son ouïe était sourde, sa vision
 trouble, tandis que Kintaro semblait lui hurler des mots tout en aidant à se
 redresser.
 
-— On ne va pas pouvoir tenir plus longtemps ! Il faut couvrir la retraite
-d’Ōtori !
+— On ne va pas pouvoir tenir plus longtemps ! Il faut couvrir la retraite
+d’Ōtori !
 
 Mais Brunet, qui peinait à retrouver sa respiration, affichait un regard
 terrorisé, agripait Kintaro par la manche, se hissant jusqu’à l’oreille du
-Japonais et de lui sussurrer :
+Japonais et de lui sussurrer :
 
 — Tenons bon jusqu’au bout…!
 
@@ -190,7 +190,7 @@ Et bientôt, une poignée d’hommes menés par Hijikata investissaient le chât
 lui-même, Shimada et les siens guerroyant au dehors.
 
 — Investissez tous les emplacements des canons aux étages et délogez tous les
-tireurs embusqués ! Aucun survivant !
+tireurs embusqués ! Aucun survivant !
 
 Au fur et à mesure d’une progression, il coulissa vivement une des nombreuses
 portes qui débouchait dans une salle traditionnelle, faite de parterres de
@@ -202,9 +202,9 @@ uniforme occidental. Il avait gardé ce même air traditionnel qu’avaient enco
 les Japonais avant leur ouverture au monde. Hikikata refermait la porte
 derrière lui, approchant prudemment, sabre et pistolets au poing.
 
-Qu’est-ce qu’un homme pouvait faire là, à attendre dans le calme ?
+Qu’est-ce qu’un homme pouvait faire là, à attendre dans le calme ?
 
-— Déclinez votre identité ! gronda Hijikata.
+— Déclinez votre identité ! gronda Hijikata.
 
 Dans une démarche lente et calme, l’homme se redressait, laissant découvrir à
 sa ceinture deux sabres long et court.
@@ -212,7 +212,7 @@ sa ceinture deux sabres long et court.
 — Donner mon nom à quelqu’un qui va mourir n’a aucune importance.
 
 — Auriez-vous oublié le code de chevalerie qui seyait à votre caste tout
-entière ? demanda Hijikata qui laissait tomber son calibre, maintenant son
+entière ? demanda Hijikata qui laissait tomber son calibre, maintenant son
 unique sabre des deux mains, lame pointée en direction du samouraï.
 
 — Je n’ai rien oublié, Hijikata Toshizō du *Shinsengumi*. Et je ne serai pas
@@ -221,7 +221,7 @@ oublié de mes pairs après ma mort. Vous, en revanche…
 Il suspendit sa phrase, tirant à son tour une lame au clair.
 
 — Vous mourrez en tant que chien galeux d’un maître qui vous a lâchement
-abandonné, et personne ne se souviendra de vous !
+abandonné, et personne ne se souviendra de vous !
 
 Les deux guerriers engagèrent le combat dans un rugissement qui fit vibrer les
 parois en papier de riz. 
@@ -242,7 +242,7 @@ chez les impériaux.
 Puis la bannière du *Shinsengumi flottait sur le château de Matsumae et sa
 silhouette cabossée.
 
-— Cessez le feu ! ordonnait alors Brunet.
+— Cessez le feu ! ordonnait alors Brunet.
 
 Mais il restait encore un adversaire qui, à l’article de la mort, avait
 provoqué une espèce de danse avec son partenaire démoniaque. Hijikata et le

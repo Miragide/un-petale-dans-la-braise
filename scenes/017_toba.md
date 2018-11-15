@@ -26,7 +26,7 @@ son étalon :
 
 — Nous venons porter un message à son altesse impériale de la part du Shōgun
 Tokugawa Yoshinobu. Nous venons en paix, ayez l’obligeance de nous céder le
-passage !
+passage !
 
 Mais il n’obtint en réponse que le bruit du vent glacial qui vint engourdir ses
 pomettes sous son casque occidental noire, serti d’une longue plume blanche.

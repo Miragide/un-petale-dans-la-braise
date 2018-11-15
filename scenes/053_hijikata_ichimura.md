@@ -15,7 +15,7 @@ d’Ichimura, tandis que le vice-commandant démoniaque se figea, dans un cri
 guerrier, la pointe de sa lame stoppée net juste avant la gorge du jeune
 garçon qui était resté immobile, glacé par l’effroi.
 
-— Ne ferme pas les yeux ! grogna Hijikata. Si tu ne te résignes pas à mourir
+— Ne ferme pas les yeux ! grogna Hijikata. Si tu ne te résignes pas à mourir
 sur le champ de bataille, alors tu mourras inévitablement !
 
 — Mais si je me résigne à mourir, alors je mourrai quand même ? demanda
@@ -86,7 +86,7 @@ adoptant l’étiquette locale, à la surprise générale. Même les Japonais, q
 portaient des vêtements typiquement occidentaux, observaient non sans curiosité
 Collache qui se donnait un air japonais.
 
-— Collache, questionna Brunet, tu comprends tout ce que l’on dit ?
+— Collache, questionna Brunet, tu comprends tout ce que l’on dit ?
 
 — Non, répondit le jeune homme. Mais je compte sur mon interprète personnel,
 Nicol ici présent, ainsi que vous-mêmes pour m’expliquer plus précisément ce
@@ -129,7 +129,7 @@ détaillé.
 
 Lorsqu’on eût levé la séance, Brunet avait demandé à Nicol un instant en privé.
 
-— Comment tu te sens ? demanda Brunet à son officier.
+— Comment tu te sens ? demanda Brunet à son officier.
 
 — Comme un samouraï qui va à la guerre, mon général.
 
@@ -140,7 +140,7 @@ Lorsqu’on eût levé la séance, Brunet avait demandé à Nicol un instant en 
 — Je voudrais que tu gardes un œil sur lui. La situtation est trop critique
 pour qu’on le laisse mourir.
 
-Nicol fronça les sourcils, ne comprenant pas à qui le « lui » faisait
+Nicol fronça les sourcils, ne comprenant pas à qui le « lui » faisait
 référence.
 
 Pendant ce temps, Brunet portait un regard inquiet sur la silhouette de

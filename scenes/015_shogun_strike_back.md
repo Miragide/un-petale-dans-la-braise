@@ -26,7 +26,7 @@ sombre, comme l’ambiance qui pesait sur la réunion.
 
 — Je vous l’avais dit, débuta Tokugawa, l’expression sévère. Vous tendez la
 main et ces charognards du Sud vous prennent le bras. Jamais je n’aurais dû
-accorder quelque clémence à ces gueux ! C’est une insulte non seulement à la
+accorder quelque clémence à ces gueux ! C’est une insulte non seulement à la
 lignée impériale mais à mon intelligence.
 
 Il criait presque. Tous avaient l’air de zombies. Roches, imperturbable au
@@ -37,6 +37,6 @@ Français, comme s’il attendait une approbation de la part du cinquantenaire.
 
 — Je veux leur faire payer pour cette grossière erreur qu’ils ont commise. Je
 veux que vous reveniez avec un plan d’attaque sur le palais de Satsuma dans
-notre chère capitale, qu’on rappelle à ces rebelles gourmands qui fait la loi !
+notre chère capitale, qu’on rappelle à ces rebelles gourmands qui fait la loi !
 
 — Il en sera fait selon votre volonté, votre altesse, conclut Roches.

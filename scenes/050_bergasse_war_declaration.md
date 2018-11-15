@@ -48,11 +48,11 @@ la nausée.
 
 — Sauf votre respect, Monsieur Bergasse, je ne compte pas avorter notre
 entreprise, dussé-je essuyer défaite sur défaite tant qu’il me reste un
-souffle de vie !
+souffle de vie !
 
 — Je suppose que c’était prévisible de votre part. Au point où vous en êtes,
 abandonner ici relèverait de la stupidité. Quitte à s’enfoncer dans le fumier,
-autant y aller jusqu’au bout, n’est-ce pas ?
+autant y aller jusqu’au bout, n’est-ce pas ?
 
 — Nous nous battons pour ce en quoi nous croyons. Comme nous le ferions avec
 n’importe quelle guerre au service de l’armée française.

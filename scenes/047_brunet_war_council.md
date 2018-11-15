@@ -26,7 +26,7 @@ l’aurez compris, un poste important à occuper. Je vous rappelle à tous que
 vous m’avez confirmé votre acceptation.
 
 Il céda ses paroles à un bref silence, tandis qu’il se penchait devant lui pour
-lire, sur un grand rouleau étendu devant lui, la liste des dignitaires, dont :
+lire, sur un grand rouleau étendu devant lui, la liste des dignitaires, dont :
 
 — Ōtori Keisuke, ministre des armées. Hijikata Toshizō, ministre des armées
 adjoint. […] Jules Brunet, général des armées, André Cazeneuve, Arthur Fortant,
@@ -98,8 +98,8 @@ niaque pour venir se les peler jusqu’ici, quand même.
 
 — Ça reste compliqué comme situation, conclut Bouffier. Même si nous avons
 tous démissionné de l’armée française, c’est dans l’espoir de servir nos deux
-pays que nous servons un peu de « bouc émissaires » à aider nos amis japonais.
-Pas vrai, Brunet… Enfin, je veux dire, « mon général ».
+pays que nous servons un peu de « bouc émissaires » à aider nos amis japonais.
+Pas vrai, Brunet… Enfin, je veux dire, « mon général ».
 
 — Pas de ça entre nous. Je refuse de m’acaparer le ridicule d’un titre
 japonais alors que je ne suis même pas Japonais.
@@ -147,7 +147,7 @@ ferme si l’on daignait perturber son repos.
 Mais contre toute attente, il accorda un sourire à Brunet.
 
 — Les environs ne m’appartiennent aucunement, répondit Hijikata. Vous êtes
-le bienvenu. Et puis, autant en profiter, n’est-ce pas ?
+le bienvenu. Et puis, autant en profiter, n’est-ce pas ?
 
 Brunet acquiesça, intimidé par la prestance et la profondeur de Hijikata. Il
 pouvait se rappeler de sa splendeur martiale au cœur du combat, guerroyant
@@ -163,7 +163,7 @@ l’échine courbée.
 Brunet. Le simple fait d’avoir un visuel entre les jambes vous aidera à
 déterminer si l’autre veut vous pourfendre ou non.
 
-— Que dites-vous ?
+— Que dites-vous ?
 
 — Lorsque deux personnes se saluent, elles s’accordent une confiance mutuelle
 — point trop n’en faut — en présentant leur échine à autrui, comme si l’on

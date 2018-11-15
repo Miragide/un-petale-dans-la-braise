@@ -1,6 +1,6 @@
 # L’inquiétude du régent {-}
 
-— Ils sont forts… Très forts !
+— Ils sont forts… Très forts !
 
 Une veine se dessina sur le front ample de Tokugawa. Il serrait de son poing
 la missive en papier de riz qu’il froissa. Il avait envie d’hurler comme un
@@ -14,7 +14,7 @@ indubitablement élargi les horizons du régent du Japon.
 Mais aujourd’hui, ils étaient dans une impasse.
 
 — Ils me demandent de céder l’intégralité de mes pouvoirs à l’Empereur. Je sais
-qu’il s’agit d’une manœuvre des provinces Chōshu et Satsuma. Quel culot !
+qu’il s’agit d’une manœuvre des provinces Chōshu et Satsuma. Quel culot !
 
 — Votre altesse… souhaita interrompre Roches.
 
@@ -25,7 +25,7 @@ stoïques, faisant acte de présence.
 
 — Qu’importe la décision qui sera prise, j’exige que vous envoyiez le plus
 d’hommes possibles à la capitale étudier auprès des Français. Le temps nous
-est compté. Hors de ma vue, tous !
+est compté. Hors de ma vue, tous !
 
 Après une légère hésitation, tous ceux qui furent la cible du regard du régent
 suprême — c’est-à-dire les Japonais — quittèrent promptement le salon de
@@ -41,9 +41,9 @@ vos propres intérêts, et continuerons de faire tourner les arsenaux à plein
 régime. Pour ce qui est de nos hommes, j’imagine que vous savez déjà leur
 faire confiance.
 
-— Je sais tout ça, mon brave Roches ! Ce que j’attends de toi, c’est que tu
-me conseilles sur la marche à adopter face à ces… ces mécréants ! Mais pour qui
-ils se prennent ?!
+— Je sais tout ça, mon brave Roches ! Ce que j’attends de toi, c’est que tu
+me conseilles sur la marche à adopter face à ces… ces mécréants ! Mais pour qui
+ils se prennent ?!
 
 — Respirez, mon ami. Je suis avec vous, et vous emporter ne fera qu’aggraver
 notre situation ; le capitaine Chanoine, son équipe et moi-même sommes tout

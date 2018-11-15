@@ -22,14 +22,14 @@ Cazeneuve, monté sur un cheval arabe, passa en revue plusieurs fois ses
 différents bataillons. L’un de ses élèves l’assistait pour traduires ses
 ordres.
 
-— Vous connaissez votre objectif ! Obligez un maximum de troupes adverses à
-engager le combat !
+— Vous connaissez votre objectif ! Obligez un maximum de troupes adverses à
+engager le combat !
 
 A peine eut-il donné les commandements qu’on entendit les canons faire feu des
 deux côtés. Un projecile ennemi termina sa course droit sur un bataillon
 d’infanterie de Bouffier, qui se démantela momentanément.
 
-— On y va ! ordonna Cazeneuve, chargeant droit devant en compagnie de ses
+— On y va ! ordonna Cazeneuve, chargeant droit devant en compagnie de ses
 hommes montés à cheval.
 
 Ils avançaient dangereusement sur l’ennemi qui avait commencé à déployer à
@@ -43,7 +43,7 @@ repousser les troupes des rebelles. Mais Fortant motivait les troupes
 d’artillerie d’une poigne de fer et bientôt les canons trouvaient leur angle
 de tir, propulsant des boulets sur les défenses et les troupes en déploiement.
 
-— Retraite ! ordonna Cazeneuve, tandis que les montures commençaient à se
+— Retraite ! ordonna Cazeneuve, tandis que les montures commençaient à se
 desorganiser sous les salves ennemies.
 
 Les impérialistes, conscients de la supériorité de leur armement et de leur
@@ -56,16 +56,16 @@ des tirs. Cazeneuve manœuvrait de sorte à harceler les adversaires, surgissant
 tel un cavalier éclair, décrochant une balle qui invalidait voire tuait un
 soldat ennemi, avant de disparaître dans ses propres rangs.
 
-— Chargez !
+— Chargez !
 
 L’ordre retentit tel un coup de tonnerre. C’était Bouffier qui, accompagné de
 samouraïs, fonçaient le sabre au poing sur les troupes adverses qui s’étaient
 suffisamment avancées pour se retrouver cernées.
 
-— Chargez ! répondit Cazeneuve, la cavalerie se réorganisant comme par miracle,
+— Chargez ! répondit Cazeneuve, la cavalerie se réorganisant comme par miracle,
 fonçant droit sur les impérialistes complètement désorganisés.
 
-— Feu à volonté ! ordonna Fortant.
+— Feu à volonté ! ordonna Fortant.
 
 D’un coup, plusieurs projectiles firent feu sur l’artillerie adverse pour
 l’empêcher de faire feu sur l’immense champ de bataille dans lequel rebelles
@@ -77,7 +77,7 @@ tenté de prendre Bouffier dans le feu du combat, lui même entraîné dans une
 folie passagère, braquant la baïonette au bout de son calibre pour repousser
 les guerriers adverses.
 
-— Merde !
+— Merde !
 
 Un samouraï le surprit de flanc, d’un cri rauque, administrant une estoque
 sanglante dans l’épaule droite du chef de brigade qui poussa à son tour une
@@ -95,9 +95,9 @@ Derrière, Cazeneuve était descendu de selle pour constater la blessure de
 Bouffier, bientôt rejoint par Fortant, au milieu d’autres soldats en
 incapacité de progresser.
 
-— Votre stratégie a fonctionné ! s’exclama ce dernier.
+— Votre stratégie a fonctionné ! s’exclama ce dernier.
 
-— C’était risqué, mais on a réussi… Non sans dégât. Ça va, le samouraï ?
+— C’était risqué, mais on a réussi… Non sans dégât. Ça va, le samouraï ?
 
 — Au top de ma forme, fit Bouffier en grimaçant. Mais je crois que je vais
 avoir besoin de soins bien vite. Ça fait mal.

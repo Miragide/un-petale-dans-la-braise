@@ -28,7 +28,7 @@ Je… Je te demande pardon…
 — Ne dis pas cela, Tomi. Tu es belle et jeune. Tu trouveras un beau mari… Et
 moi… Je ne puis me préoccuper de fonder une famille dans ma situation.
 
-— Mais c’est toi que je veux !
+— Mais c’est toi que je veux !
 
 — Je le conçois. Et c’est toi que je veux aussi. Alors tu vas écouter
 attentivement ce que j’ai à te dire.
@@ -38,7 +38,7 @@ faire face. Ses yeux larmoyants lui crevaient le cœur, mais il gardait
 contenance quand bien même le timbre de sa voix s’en retrouvait altéré par
 sa gorge nouée.
 
-— Je ne vais pas rentrer en France, Tomi ! Mes amis vont se battre jusqu’à la
+— Je ne vais pas rentrer en France, Tomi ! Mes amis vont se battre jusqu’à la
 fin et ils ont besoin de moi. Je ne puis leur refuser ça. Après tout ce que
 nous avons partagé, tout ce que nous avons vécu, toute l’hospitalité dont
 mes élèves ont fait preuve… C’est mon devoir de les rejoindre.

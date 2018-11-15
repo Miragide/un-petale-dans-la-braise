@@ -37,7 +37,7 @@ timidement contre lui.
 — Comme le sentiment d’avoir été le dindon de la farce tout ce temps,
 poursuivit Brunet.
 
-— Ne dis pas ça… Qu’en pensent tes collégues ?
+— Ne dis pas ça… Qu’en pensent tes collégues ?
 
 — Oh ! Naturellement, ils sont peinés. Certains plus que d’autres. Mais la
 majorité se font une raison et envisagent déjà leurs futures campagnes. Je
@@ -59,7 +59,7 @@ Il la prit dans ses bras.
 — Tu n’es qu’un être humain. répondit-elle d’une voix tremblante. Et l’une des
 personnes les plus belles qu’il m’ait été donné de rencontrer. Tu n’auras
 peut-être pas un impact aussi spectaculaire que le Mikado ou le Shōgun dans les
-grandes pages de l’Histoire, mais est-ce vraiment le combat de ta vie ?
+grandes pages de l’Histoire, mais est-ce vraiment le combat de ta vie ?
 L’empereur est né empereur. Le Français que tu es est né Français. Ça ne pourra
 pas changer.
 

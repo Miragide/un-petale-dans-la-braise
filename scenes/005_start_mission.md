@@ -10,9 +10,9 @@ caserne d’Otamura. Dans la grande cour intérieure de la caserne, les jeunes
 exécutaient les ordres avec entrain. Les directives étaient, parfois, ponctuées
 de rappel à l’ordre de la part des instructeurs à l’attention des officiers
 japonais, dont l’ardeur et la motivation étaient telles qu’il se plaisaient
-eux-mêmes à donner leurs commandements en français !
+eux-mêmes à donner leurs commandements en français !
 
-— Gauche ! Droite ! Gauche ! Droite ! tonitruait Bouffier qui mettait au pas
+— Gauche ! Droite ! Gauche ! Droite ! tonitruait Bouffier qui mettait au pas
 les jeunes nippons.
 
 On entendit une salve de tirs à l’autre extrêmité, où des élèves de Marlin
@@ -30,8 +30,8 @@ qui, elle, faisait l’unanimité dans un pays uni là où tous les japonais ne
 servaient la même cause.
 
 – Ainsi donc, le rôle de l’artillerie sera d’apporter un soutien aux unités
-d’infanterie et aux unités. Notre objectif : monter deux batteries de montagne,
-deux batterie de campagne et, j’insiste fortement sur ce point : une batterie
+d’infanterie et aux unités. Notre objectif : monter deux batteries de montagne,
+deux batterie de campagne et, j’insiste fortement sur ce point : une batterie
 de réserve en soutien.
 
 Tous acquiesçaient, prenant des notes éparses sur leur cahier tandis que Brunet
@@ -45,7 +45,7 @@ pour manœuvrer les équipements dans des terrains parfois accidentés.
 
 Kintaro, pour demander la parole, leva la main. Brunet l’interrogea du regard.
 
-— Qu’elle est la portée d’un canon moyen ?
+— Qu’elle est la portée d’un canon moyen ?
 
 — Deux lieues, répondit Brunet. Leur cadence équivaut à trois projectiles
 toutes les deux minutes environ. Ceci sous réserve d’une organisation optimale,
@@ -82,7 +82,7 @@ fatigué, tour à tour, les quatres instructeurs français.
 
 — Tout va pour le mieux ? demanda-t-il.
 
-— On ne peut mieux ! lança Bouffier. C’est fort dépaysant d’enseigner à des
+— On ne peut mieux ! lança Bouffier. C’est fort dépaysant d’enseigner à des
 personnes aussi jeunes et aussi motivées. De mon vivant, je n’ai jamais vu
 autant de cœur à l’ouvrage.
 
@@ -90,7 +90,7 @@ autant de cœur à l’ouvrage.
 comprendre que vous aviez vos manières de… faire comprendre certaines choses
 à vos interlocuteurs, de Japonais à Japonais.
 
-— C’est-à-dire ? questionnait Ōtori.
+— C’est-à-dire ? questionnait Ōtori.
 
 — Je ne sais pas. Je vous ai rarement vu refuser quoi que ce soit. Vous
 préférez ne pas être trop directs dans vos approches, surtout lorsqu’il s’agit
@@ -98,11 +98,11 @@ d’un refus.
 
 — Exactement. Mais n’hésitez pas à vous montrer ferme avec vos élèves, ils vous
 en remercieront. Dans la vie de tous les jours comme chez les samouraïs, le
-respect des aînés est de mise. Et s’ils vous appellent « professeur », je vous
+respect des aînés est de mise. Et s’ils vous appellent « professeur », je vous
 donne ma parole que, pas une seule fois, ils ne trouveront quoi que ce soit à
 redire sur vos agissements et paroles. C’est passible de mort, autrement.
 
-— … De mort ? s’étonna Fortant.
+— … De mort ? s’étonna Fortant.
 
 — La grande majorité de vos élèves sont de jeunes samouraïs. C’est un titre de
 noblesse issu d’une certaine aristocratie qui a régné en maître sur le Japon
@@ -113,8 +113,8 @@ Tous se turent un instant. Bouffier et Marlin peinèrent à dissimuler leur
 étonnement, tandis que Fortant acquiesçait gravement. Brunet, quant à lui,
 restait de marbre, alors qu’il portait un morceau de légume mariné à sa bouche.
 
-— Cette étiquette s’appelle le « Bushidō ». Les samouraïs de l’ère précédente
-étaient brutaux et s’en prenaient même aux castes inférieures de la société :
+— Cette étiquette s’appelle le « Bushidō ». Les samouraïs de l’ère précédente
+étaient brutaux et s’en prenaient même aux castes inférieures de la société :
 les paysans, les artisans et enfin les marchands. Et pour qu’une société
 fonctionne ; qu’on œuvre tous ensemble dans la paix, il fallait éduquer cette
 caste guerrière qu’était celle des samouraïs. C’est là que le Shōgun, après

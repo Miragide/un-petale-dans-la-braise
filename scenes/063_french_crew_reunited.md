@@ -19,7 +19,7 @@ Enfin, un personnage en grande tenue fit son apparition, que Collache devinait
 
 Le Français vint à sa rencontre.
 
-— Qu’est-ce qu’il se passe ? demanda Collache. Qu’est-ce que je fais ici ?
+— Qu’est-ce qu’il se passe ? demanda Collache. Qu’est-ce que je fais ici ?
 
 — Vous êtes béni des dieux, répondit le Japonais. Nous attendons le bateau qui
 vous ramènera à Yokohama où vous serez remis à votre légation.
@@ -46,19 +46,19 @@ précipiter dans ses bras.
 Mais Collache n’était pas informé de la convalescence de Nicol qui grimaça sous
 l’étreinte.
 
-— Putain, Collache !
+— Putain, Collache !
 
-— Ah, mon vieux ! J’ai cru que t’avais cané dans la baie de Miyako, moi !
+— Ah, mon vieux ! J’ai cru que t’avais cané dans la baie de Miyako, moi !
 
-— Tu me fais mal !
+— Tu me fais mal !
 
 Collache déserra l’accolade.
 
-— Faut que tu me racontes tout ce qu’il s’est passé !
+— Faut que tu me racontes tout ce qu’il s’est passé !
 
 Il passait en revue la fine équipe. La peur se lit soudain sur son visage.
 
-— Où est Cazeneuve ?!
+— Où est Cazeneuve ?!
 
 — Ne t’inquiète pas, répondit promptement Brunet. Il se repose dans sa cabine
 sous le pont. Sa blessure à la jambe n’est pas belle, mais il va survivre.

@@ -47,7 +47,7 @@ Enfin, presque.
 
 — Je crois qu’on s’est perdu, avoua Collache.
 
-— Mais t’es sérieux, Eugène ? T’as rien dans la caboche ou quoi ?
+— Mais t’es sérieux, Eugène ? T’as rien dans la caboche ou quoi ?
 
 — Mais si, attends, chut, tu me déconcentres, j’essaie de retrouver mon chemin.
 
@@ -58,12 +58,12 @@ l’automne avait fini de faire flétrir.
 Le marin prit une grande inspiration, levant les bras à l’horizontale, paumes
 tendues vers le ciel…
 
-— Putain, Eugène, mais t’arrêtes jamais !
+— Putain, Eugène, mais t’arrêtes jamais !
 
-— Chut ! J’écoute les fonds marins… Oui… Oui ! — Il ouvrit les yeux et pointa
-une direction — c’est par là !
+— Chut ! J’écoute les fonds marins… Oui… Oui ! — Il ouvrit les yeux et pointa
+une direction — c’est par là !
 
-— Mais tu te fous de ma gueule !
+— Mais tu te fous de ma gueule !
 
 — Oui. avoua Collache.
 
@@ -75,15 +75,15 @@ Nord.
 l’entrain du monde jusqu’à Sendai… J’aime autant préciser, Nicol, qu’on
 n’arrive pas à pieds par la Chine !
 
-— Mais qu’est-ce que tu racontes ?
+— Mais qu’est-ce que tu racontes ?
 
-— Arriver à *pieds* par la *Chine*, Nicol !
+— Arriver à *pieds* par la *Chine*, Nicol !
 
 — Ah non… On est arrivé en bateau après une escale à Shanghai.
 
-— Tu casses tout mon humour !
+— Tu casses tout mon humour !
 
-— De *quoi* tu parles ?
+— De *quoi* tu parles ?
 
 — Laisse tomber.
 

@@ -37,7 +37,7 @@ surmontant deux casoars croisés.
 Ils s’arrêtèrent devant les portes du palais, gardé par deux samouraïs de
 kimono où ils durent montrer patte blanche. Ce faisant, ils pénétrèrent
 noblement dans l’enceinte du palais du Shōgun avant de descendre de cheval.
-Chanoine ne manqua pas d’atterrir « avec vigueur », manquant à nouveau de finir
+Chanoine ne manqua pas d’atterrir « avec vigueur », manquant à nouveau de finir
 les coudes sur le sol, mais ne jurant pas cette fois. Un énorme progrès.
 
 — Attendez-moi ici, intima Roches qui se fit accompagner d’un samouraï et de
@@ -56,7 +56,7 @@ et son hôte s’étaient fondus.
 l’ambassadeur quand il a demandé à ce que j’amène mes estampes.
 
 — Le fait est que tu dessines remarquablement bien. J’irai jusqu’à dire que
-tu fais un jaloux !
+tu fais un jaloux !
 
 — C’est la classe. plaisanta timidement Brunet.
 
@@ -73,7 +73,7 @@ officiers étaient attendus. Ils furent sommés de se déchausser avant de
 pénétrer à l’intérieur. Ils furent guidés parmi quelques couloirs aux toisons
 fines aux papiers de riz, marchant sur des tatami de paille de riz.
 
-Ils s’arrêtèrent devant une porte, lorsque le page prononça :
+Ils s’arrêtèrent devant une porte, lorsque le page prononça :
 
 — Je dérange.
 
@@ -100,7 +100,7 @@ ou Descharmes.
 Sulspice Jules Chanoine, accompagné ses officiers, messieur le lieutenant
 Brunet et le lieutenant Descharmes.
 
-— Lequel est le dessinateur de talent ? demanda Yoshinobu avec autorité.
+— Lequel est le dessinateur de talent ? demanda Yoshinobu avec autorité.
 
 — Brunet même, votre altesse.
 
@@ -130,21 +130,21 @@ Tokugawa avait le teint clair, le front haut dont les rides se creusaient et
 se décreusaient au fur et à mesure qu’il parlait à Chanoine avec cette
 expression autoritaire et violente qu’était celle du régent suprême du Japon.
 Il avait le nez aquilin et la narine légèrement retroussée. Sa gestuelle était
-grandiloquente, alors qu’il s’exprimait en ces termes à Chanoine :
+grandiloquente, alors qu’il s’exprimait en ces termes à Chanoine :
 
 — Qu’est-ce que vous projetez de faire vis-à-vis des opérations sur nos
-différents bâtiments logistiques ?
+différents bâtiments logistiques ?
 
 — J’ai fait charger l’officier Brunet d’optimiser des ateliers et les processus
 de fabrication de fusils, de fonte de canons et de construction de navires pour
 votre flotte.
 
-— Celui-là même qui m’esquisse ?
+— Celui-là même qui m’esquisse ?
 
 — Affirmatif, votre altesse.
 
 — Vous avez un homme précieux. Si j’avais pareille personne à mes côtés, il
-serait sans doute l’un de mes plus proches vassaux !
+serait sans doute l’un de mes plus proches vassaux !
 
 Le *Shōgun* rit grassement, dévoilant à nouveau ses dents sales. Chanoine
 esquissa un sourire poli, imperméable.

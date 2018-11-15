@@ -6,7 +6,7 @@ très court instant de répit, amarèrent à Shinagawa.
 On fit transporter les bagages de Brunet et Cazeneuve jusqu’au quai où ils
 attendirent.
 
-— Tu dois retrouver quelqu’un ? demanda Cazeneuve.
+— Tu dois retrouver quelqu’un ? demanda Cazeneuve.
 
 — Kintaro m’a fait une promesse.
 
@@ -19,17 +19,17 @@ silhouette se distinguant parmi la foule de gens pressés. Quel ne fut pas le
 sourire de Brunet, qui se surpris à rire nerveusement.
 
 — Vous l’avez fait, professeur ! s’exclama Kintaro. Vous êtes venu avec le
-professeur Cazeneuve !
+professeur Cazeneuve !
 
 — Je te demande pardon pour n’avoir pris ma décision plus tôt, répondit Brunet.
 
-— Oh, ça, ne vous en faîtes pas ! On a réussi à rassembler beaucoup d’hommes en
+— Oh, ça, ne vous en faîtes pas ! On a réussi à rassembler beaucoup d’hommes en
 conséquence, et vous aurez trouvé le moyen de nous rejoindre, quoi qu’il en
-soit !
+soit !
 
-— Tu as quelqu’un à nous présenter ?
+— Tu as quelqu’un à nous présenter ?
 
-— Absolument ! Suivez-moi, s’il vous plaît.
+— Absolument ! Suivez-moi, s’il vous plaît.
 
 Kintaro escorta les deux français, le long du quai, jusqu’à un autre navire à
 vapeur ; une imposante frégate qui comportait à ses bords plusieurs canons.
@@ -40,7 +40,7 @@ vapeur ; une imposante frégate qui comportait à ses bords plusieurs canons.
 profiter de la nuit noire pour quitter la baie. Je vous laisserai en discuter
 avec le seigneur Enomoto.
 
-— Seigneur Enomoto ?
+— Seigneur Enomoto ?
 
 — Le meneur de la rebéllion. Il souhaite vous rencontrer.
 
@@ -51,7 +51,7 @@ certains élèves de Brunet. Ils peinèrent à contenir leur joie alors qu’ils
 s’ammassèrent, tout admiratifs, autour du grand salvateur qui en eut presque
 les larmes aux yeux.
 
-— Vous guettiez ma présence à ce point ?
+— Vous guettiez ma présence à ce point ?
 
 — Il faut croire que votre français chevaleresque leur manquait, plaisanta
 Kintaro.
@@ -61,16 +61,16 @@ officiers, Brunet et Cazeneuve montèrent donc à bord de l’imposant navire.
 
 — Nous sommes sur le *Kaiyō Maru*, commandé par Seigneur Enomoto Takeaki. Il
 s’agit d’une frégate de vingt-six canons venu tout droit d’Hollande, et notre
-meilleur vaisseau ! Attendez-moi là.
+meilleur vaisseau ! Attendez-moi là.
 
 Kintaro disparut derrière une porte. Brunet et Cazeneuve échangèrent un regard
 complice.
 
-— Comment tu te sens ? demanda ce dernier.
+— Comment tu te sens ? demanda ce dernier.
 
 — Nerveux.
 
-— Tu veux faire demi-tour ?
+— Tu veux faire demi-tour ?
 
 — Non.
 
@@ -91,7 +91,7 @@ sa moustache en guidon, comme celle de Cazeneuve, mais avec un vide imberbe
 juste en-dessous de l’arête du nez.
 
 Concernant sa tenue vestimentaire, il ne vêtait rien qui ne le qualifiait pas
-de marin et d’amiral : cabant sombre, chemise blanc cassé, pantalon ample
+de marin et d’amiral : cabant sombre, chemise blanc cassé, pantalon ample
 noir, bottes de jais remontant jusqu’aux tibiats.
 
 Enomoto, la mine neutre, s’approcha de Brunet et lui tendit une poigne. Il

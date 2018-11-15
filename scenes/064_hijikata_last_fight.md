@@ -11,13 +11,13 @@ Les deux guerriers s’en retournèrent à la ville, et plus précisément à la
 forteresse de *Goryokaku*, ou les derniers guerriers fidèles au vice-commandant
 démoniaque attendaient, en ordre.
 
-— Mes frères ! Je vous l’ai dit tant de fois avec conviction, mais ce soir je
-le répète avec la plus ferme croyance qui est mienne : ce soir, nous mourrons !
+— Mes frères ! Je vous l’ai dit tant de fois avec conviction, mais ce soir je
+le répète avec la plus ferme croyance qui est mienne : ce soir, nous mourrons !
 Nous mourrons au combat, pour nos valeurs, nos croyances, au nom d’un code de
 l’honneur, d’une chevalerie tombée en désuétude qui n’a plus sa place dans ce
 monde en proie aux jeux de pouvoirs et à la cupidité. Nous sommes les derniers
 guerriers véritables que le Japon n’aura jamais porté. Alors mourrons avec la
-chevalerie ! Pour le *Bushidō* ! Pour le *Shōgun* Tokugawa !
+chevalerie ! Pour le *Bushidō* ! Pour le *Shōgun* Tokugawa !
 
 Il brandit son sabre, rejoint par Shimada et ses troupes. Tous hélèrent des
 clâmeurs presque infinies, s’enhardissant avant ce qui saurait être le dernier
@@ -48,7 +48,7 @@ C’était un combat inutile, d’autant plus qu’on faisait pleuvoir, au loin,
 salves qui commençaient tant à nettoyer la mêlée du côté des impérialistes que
 des rebelles déployés.
 
-— Laches ! Hurla Hikijata qui ordonna la retraite à ses troupes.
+— Laches ! Hurla Hikijata qui ordonna la retraite à ses troupes.
 
 Offrir sa vie ne signifiait pas la donner inutilement sur le champ de bataille
 selon lui.

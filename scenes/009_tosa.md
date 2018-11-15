@@ -40,7 +40,7 @@ innovation en matière d’armement, mais si l’on doit craindre les manœuvres
 quelques hommes du Shōgun, ce sont bien eux.
 
 — Peut-être que l’envoi d’espions et d’assassins sur la capitale leur mettrait
-des bâtons dans les roues ?
+des bâtons dans les roues ?
 
 — Entre autre… Toujours est-il que nous n’avons pas le nombre pour nous, mais
 nous sommes mieux armés sur la Terre. Une fois que nous aurons progressé sur

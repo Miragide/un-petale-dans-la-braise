@@ -18,19 +18,19 @@ de revenir l’amarrer à Hakodate.
 Le *Takao*, quant à lui, souffrait de problèmes moteurs, ce qui l’empêchait de
 se mouvoir à plus de trois nœuds.
 
-— Putain, merde, fait chier ! jurait Collache.
+— Putain, merde, fait chier ! jurait Collache.
 
 En tenue traditionnelle japonaise, il balayait l’assemblée de Japonais du
 regard, tous vêtus en tenue européenne, à répéter les « putain » ou encore les
 « chier » qu’ils avaient pu assimiler, sans trop comprendre le fond de la
 pensée de Collache.
 
-— Nicol ! gueula Collache en direction du *Kaiten*, on est en rade ! On avance
-à trois nœuds, ou a peine !
+— Nicol ! gueula Collache en direction du *Kaiten*, on est en rade ! On avance
+à trois nœuds, ou a peine !
 
-— Merde ! répondit Nicol, sa voix portant au loin.
+— Merde ! répondit Nicol, sa voix portant au loin.
 
-— « Merde ! » reprirent machinalement les Japonais.
+— « Merde ! » reprirent machinalement les Japonais.
 
 Bientôt, tout le monde comprit que seul le *Kaiten* serait affairé à
 l’abordage du *Kōtetsu*, cuirassé impérial.
@@ -59,7 +59,7 @@ Mais la mélée ne fut que de courte durée. Le Français vit deux hommes décou
 d’un drap blanc une mitrailleuse qu’ils commençaient à pointer en direction des
 hommes sur le pont.
 
-— Gatling ! hurla-t-il.
+— Gatling ! hurla-t-il.
 
 Ni une, ni deux, Nicol se rua en direction de Hijikata pour le bousculer de la
 trajectoire de l’impitoyable mitrailleuse qui avait commencé à perforer le
@@ -71,7 +71,7 @@ expression féroce et malsaine.
 
 Hijikata bouait. Tout combat était inutile.
 
-— Retraite ! hurla-t-il en essayant de soutenir Nicol qui gardait une main sur
+— Retraite ! hurla-t-il en essayant de soutenir Nicol qui gardait une main sur
 sa blessure.
 
 Shimada, quant à lui, s’était redressé, portant dans ses bras un des ses alliés
@@ -89,7 +89,7 @@ moral au plus bas. Certains avaient même commencé à boire en admettant l’é
 de l’opération au vu des bâtiments de l’armée impériale qui se dessinaient au
 loin dans la baie.
 
-— Merde ! jura Collache. Faut regagner la côte et fuir par la terre !
+— Merde ! jura Collache. Faut regagner la côte et fuir par la terre !
 
 Le navire dévia sa trajectoire, se mouvant dans une lenteur frustrante tandis
 que son équipage détruisait tout ce qu’on pouvait saboter. Puis le *Takao*
@@ -99,12 +99,12 @@ plus.
 Collache somma tout le monde de courir en direction de la terre ferme alors
 qu’il alluma la mèche reliée à l’intégralité des explosifs du navire.
 
-— Ça va péter ! hurla-t-il alors qu’il s’éloignait du bateau naufragé.
+— Ça va péter ! hurla-t-il alors qu’il s’éloignait du bateau naufragé.
 
 Il courut rejoindre ses alliés alors que l’un deux tomba à plat ventre, inerte,
 après avoir reçu une balle dans la poitrine.
 
-— Saloperie ! jura-t-il.
+— Saloperie ! jura-t-il.
 
 Il prit de la vitesse, géné par son kimono humide mait gouverné par son
 instinct de survie. Les larmes aux yeux, il escaladait la falaise alors qu’il

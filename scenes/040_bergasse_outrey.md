@@ -6,11 +6,11 @@ Bergasse laissa tomber les deux documents qu’il tenait d’une main lasse sur
 le bureau d’Outrey. Ce dernier les tria et y porta une brève attention,
 devinant sans mal qu’il s’agissait de lettres de démission.
 
-— Mais je croirais rêver. De qui s’agit-il cette fois ?
+— Mais je croirais rêver. De qui s’agit-il cette fois ?
 
 — Les officiers Collache et Nicol.
 
-— Quand est-ce que cela va s’arrêter ?
+— Quand est-ce que cela va s’arrêter ?
 
 — Je l’ignore. Les deux matelos ont laissé leur lettre de démission dans leur
 cabine. Ils doivent être loin, maintenant.
@@ -20,7 +20,7 @@ cabine. Ils doivent être loin, maintenant.
 — Je pense aussi. La crainte d’une rebellion dans le Nord se confirme.
 
 — Pourquoi faut-il que je porte sur mes épaules le poids des erreurs de tous
-ces fous à lier ? demanda Outrey, presque sur le ton de la supplication.
+ces fous à lier ? demanda Outrey, presque sur le ton de la supplication.
 
 — C’est un pays fascinant et je m’intéresserais davantage aux arguments des
 partisants du Shōgun, si j’étais vous, confia Bergasse. J’entretiens de bons

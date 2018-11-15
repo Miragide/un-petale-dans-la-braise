@@ -17,7 +17,7 @@ Brunet y songeait. Quelque part dans la cour intérieure de la forteresse en
 étoile de *Goryokaku*, il avait vaqué à son temps libre sous ce timide soleil
 matinal, contemplant le cerisier à peine florissant, perdu dans ses songes.
 
-— Une impression de déjà vécu, n’est-ce pas ?
+— Une impression de déjà vécu, n’est-ce pas ?
 
 C’était la voix de Cazeneuve qui tira Brunet de ses rêveries. Le grand brun
 accorda un sourire affable à son ami.
@@ -54,7 +54,7 @@ basculer ; six d’entre nous t’ont rejoint, la république d’Ezo a vu le jo
 même été reconnue et soutenue au moins politiquement par des États étrangers…
 Brunet, c’est un fait : on a fait quelque chose qui a changé la face du monde.
 
-— Je le sais bien. Mais pourquoi dis-tu cela ?
+— Je le sais bien. Mais pourquoi dis-tu cela ?
 
 — Pour que tu t’en souviennes le jour où tu pourrais regretter tout ça,
 remettre en question tout ce qu’on a pu faire. L’histoire est écrite par les
@@ -84,7 +84,7 @@ ami fût seul à nouveau.
 
 — Toujours avec grand plaisir, cher ami, dit doucement Brunet.
 
-— Les fleurs sont magnifiques, n’est-ce pas ?
+— Les fleurs sont magnifiques, n’est-ce pas ?
 
 — Oui. Et je sais ce qu’elles représentent pour vous.
 
@@ -101,9 +101,9 @@ protéger les siens sans faire cas de sa vie. Mais toute cette guerre est
 absurde et n’a été qu’une vilaine histoire d’argent, de complots et
 d’aliénations. Est-ce vraiment ce dont nous sommes capables au terme de plus
 de deux siècles d’enfermement dans un Japon propice à l’essor des castes
-guerrières ?
+guerrières ?
 
-— Que voulez-vous dire ?
+— Que voulez-vous dire ?
 
 — Que si je tue les gens sans état d’âme avec mon sabre, eux me tuent à petits
 feux par leur hypocrisie qui a fait perdre la vie à plus d’un homme de valeur.
@@ -129,7 +129,7 @@ Hijikata fronça légèrement les sourcils, secouant la tête.
 — Il suffit de voir au-delà. Au Japon, vous avez appartenu à un simple corps
 de guerriers qui a su s’imposer parmi les plus fidèles vassaux du Shōgun.
 Qu’est-ce que cela aurait été si on vous avait missionné pour combattre un
-autre pays ?
+autre pays ?
 
 — Vous me surestimez, Monsieur Brunet… Nous étions juste une bande de fous,
 dont certains se sont fait la promesse, dans quelque immense mouvement de
@@ -137,10 +137,10 @@ solitude, de devenir des samouraïs. Mais nous n’avons jamais été considér�
 comme de vrais guerriers par qui que ce soit, et maintenant nous ne sommes
 plus que l’ombre de nous-mêmes ; des vestiges oblitérés d’une époque révolue.
 
-— Ne dites pas cela ! interrompit Brunet. Vous êtes intègre, droit et généreux.
-Beaucoup auraient à envier le non-samouraï ou le non-guerrier que vous êtes !
+— Ne dites pas cela ! interrompit Brunet. Vous êtes intègre, droit et généreux.
+Beaucoup auraient à envier le non-samouraï ou le non-guerrier que vous êtes !
 Et si au Japon vous êtes guidés par le *Bushidō*, en Europe nous sommes
-nourris par la Chevalerie, Monsieur Hijikata !
+nourris par la Chevalerie, Monsieur Hijikata !
 
 Les deux hommes se regardèrent intensément. Une flamme semblait briller dans le
 regard du grand brun, qui voyait en Hijikata une inévitable source

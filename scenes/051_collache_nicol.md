@@ -89,7 +89,7 @@ détresse de deux Français. Il releva la tête vers Kintaro.
 — Va à leur rencontre et conduis-les jusqu’ici. Je vais les attendre en bas
 où on leur servira du thé et des gâteaux.
 
-— Qu’est-ce que ça signifie ? demanda Marlin, curieux.
+— Qu’est-ce que ça signifie ? demanda Marlin, curieux.
 
 — Je vais accepter leur service. J’ai été idiot de leur avoir fermé la porte.
 Je ne voulais rien compliquer mais ces gaillards sont déterminés tout autant
@@ -102,7 +102,7 @@ que nous.
 — Allons, mon vieux, coupa Cazeneuve. On va pas recommencer. On est en guerre,
 pas le temps de s’auto-flageller et le mal est fait. Tu as deux officiers
 déterminés, peut-être même les plus solides d’entre nous. Que demande le
-peuple ?
+peuple ?
 
 La question de Cazeneuve était restée en suspend.
 
@@ -131,7 +131,7 @@ convives avant de s’éclipser, derrière un timide merci des marins.
 
 — J’ai… débuta Brunet, reçu une missive de la part d’un aviso qui m’a fait
 savoir que vous étiez restés à errer dans la ville, exploités par un marchand
-et presque sans moyen de subsistance. Est-ce vrai ?
+et presque sans moyen de subsistance. Est-ce vrai ?
 
 Collache opina du chef. Il avait la gorge nouée et les larmes montaient presque
 au vu de ce réconfort soudain. Eût-il été officier, les dernières conditions de
@@ -141,13 +141,13 @@ vie avaient été telles qu’il relâchait la pression.
 juste des fous, un peu plus jeunes que vous, certes, mais on en veut… Et le
 mieux que je pusse faire, c’est de faire tenir mon bon copain Collache alors
 qu’à plus d’une fois on a réfléchi à regagner la marine ou accepter de nous
-ranger du côté des impérialistes… Mais… Putain, vas-y, Collache, dis-lui !
+ranger du côté des impérialistes… Mais… Putain, vas-y, Collache, dis-lui !
 
-— Nous aussi on est des samouraïs ! s’exclama-t-il soudainement. Et on ne
+— Nous aussi on est des samouraïs ! s’exclama-t-il soudainement. Et on ne
 prendra pas le vent d’où il vient. Plutôt mourir que de retourner là d’où on
-vient. Nous aussi on veut se battre pour les rebelles ! On sait très bien ce
-qu’il s’est passé pour que les provinces du Sud vous acculent au Nord ! Et
-c’est ce *même* sentiment d’injustice qui nous anime !
+vient. Nous aussi on veut se battre pour les rebelles ! On sait très bien ce
+qu’il s’est passé pour que les provinces du Sud vous acculent au Nord ! Et
+c’est ce *même* sentiment d’injustice qui nous anime !
 
 Les larmes perlaient abondamment sur les pomettes de Collache. Derrière cette
 façade humoristique et un rien infantile se cachait le cœur d’un homme
@@ -162,7 +162,7 @@ sentiments personnels altérer ses décisions. Surtout en de pareils temps.
 fort de *Goryokaku*. Mais mon entreprise est risquée et en vous acceptant à
 mon service, j’accepte aussi de compromettre mes camarades et la position de
 la légation de France au Japon si votre démission n’est pas acceptée par le
-ministre de la guerre. Vous comprenez ?
+ministre de la guerre. Vous comprenez ?
 
 — On veut pas de votre pitié ni de votre clémence, monsieur Brunet, dit
 fermement Nicol. Nous on est des durs de la marine comme vous en verrez peu.
@@ -172,12 +172,12 @@ des perles et vos amis japonais sauraient profiter de notre savoir.
 
 — Soyez honnêtes avec nous, reprit Collache. monsieur Brunet, avec tout le
 respect qu’on vous doit… N’avez-vous pas aussi démissionné sans attendre que
-votre démission soit acceptée ? N’êtes-vous pas dans une situation fausse vous
-aussi ?
+votre démission soit acceptée ? N’êtes-vous pas dans une situation fausse vous
+aussi ?
 
 Le grand brun se tut. Collache avait touché un point sensible.
 
-— vous savez, je vous ai traité de « tête de con » dans mon emportement et je
+— vous savez, je vous ai traité de « tête de con » dans mon emportement et je
 le regrette amèrement. Mon cœur se soulève rien que d’y penser, et c’est dire
 si je veux m’ouvrir le bas ventre pour nettoyer cette impureté dont je vous
 ai fait l’affront, Monsieur Brunet.

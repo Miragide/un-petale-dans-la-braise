@@ -10,7 +10,7 @@ qui le toisait d’un air presque inquisiteur.
 
 — Nous partons demain et notre présence au Japon n’est plus souhaitée.
 J’éviterais de me faire remarquer si j’étais toi. Et tu ne pouvais pas t’en
-charger plus tôt ?
+charger plus tôt ?
 
 — J’ai plusieurs personnes à saluer. Il faut dire que ma présence ici a laissé
 des impression et des amitiés…
@@ -24,7 +24,7 @@ ne suis pas un parent, fais ce que tu veux, mais on embarque demain. Demain.
 Chanoine pour se rendre à celui qui lui avait été dédié en tant que capitaine.
 
 Armé d’une note et d’un stylo à plume dorée, après avoir précisé à l’écrit les
-circonstances de sa missive, il coucha sur le papier ces simples mots :
+circonstances de sa missive, il coucha sur le papier ces simples mots :
 
 > J’ai l’honneur de vous remettre ma démission du grade de capitaine ; je
 déclare qu’à partir de la présente date, je renonce aux prérogatives de la
@@ -50,7 +50,7 @@ une chambre dans laquelle étaient restés tous ses effets personnels.
 À sa grande surprise, Cazeneuve attendait, les bras croisés, avec une valise
 reposant à sa droite. Il ne revêtait pas les uniformes de l’armée française.
 
-— Cazeneuve ? Que fais-tu ici ? demanda Brunet.
+— Cazeneuve ? Que fais-tu ici ? demanda Brunet.
 
 — Je saurais vous retourner la question, mon capitaine.
 
@@ -58,7 +58,7 @@ reposant à sa droite. Il ne revêtait pas les uniformes de l’armée français
 
 — Pas de ça avec moi. Je sais pour vos desseins.
 
-— Mes desseins ? intorregea Brunet en croisant les bras.
+— Mes desseins ? intorregea Brunet en croisant les bras.
 
 — Oui. Ce que vous projetez de faire. Je ne parle pas de vos estampes.
 
@@ -71,22 +71,22 @@ suivre dans cette entreprise folle et désespérée qu’est la vôtre.
 
 — Je regrette, c’est hors de question.
 
-— Vous ne m’aimez pas ?
+— Vous ne m’aimez pas ?
 
 — Au contraire. Mais c’est un combat qui me concerne seulement. Et puis on a
 besoin de bonnes gens comme vous dans l’armée française. Des gaillards de
-votre trempe !
+votre trempe !
 
 — Contrairement à vous, je ne suis plus tenu par le service militaire. Autant
 vous dire que mon départ à vos côtés ne causera pas plus de vagues que ce
 que vous en faîtes.
 
-— Cazeneuve ! Je ne peux pas, vraiment. Je ne me le pardonnerais pas si des
+— Cazeneuve ! Je ne peux pas, vraiment. Je ne me le pardonnerais pas si des
 hommes que j’emmenais avec moi ne sauraient trouver le salut dans cette
 affaire. Je ne me sentirais que responsable et meurtri s’il vous arrivait
-quelque chose. Par ma faute !
+quelque chose. Par ma faute !
 
-— J’ai pris ma décision. Arrêtez de faire le chevalier égoïste, mon capitaine !
+— J’ai pris ma décision. Arrêtez de faire le chevalier égoïste, mon capitaine !
 Ils n’ont pas besoin d’un héros. Ils ont besoin d’une équipe. Et à nous deux,
 nous faisons une équipe do choc. Enfin, les héros qui bravent les dangers
 seuls, ça n’existe que dans les romans. Dans la réalité, un héros seul est
@@ -108,7 +108,7 @@ permettre de laisser mon capitaine me tenir la jambe. J’ai attendu trop
 longtemps que les impérialistes ne prolifèrent au Nord et il me faut partir
 au plus vite.
 
-— Tu as un plan ?
+— Tu as un plan ?
 
 — J’ai un ami qui travaille au port de Yokohama. En échange d’un billet, il
 devrait pouvoir s’arranger pour nous faire partir pour Shinagawa.
@@ -136,9 +136,9 @@ et le meilleur brigadier français au Japon.
 Un rire parcourut les trois gaillards.
 
 — Cazeneuve va partir avec moi, expliqua Brunet. Tu penses pouvoir nous faire
-passer jusqu’au port de Shinagawa ?
+passer jusqu’au port de Shinagawa ?
 
-— Et comment, mon vieux ! s’exclama Verny. Pour un confrère polytechnicien, je
+— Et comment, mon vieux ! s’exclama Verny. Pour un confrère polytechnicien, je
 décrocherais la Lune.
 
 Il jeta un regard à Cazeneuve.
@@ -169,7 +169,7 @@ Brunet et Cazeneuve se tenaient adossé contre la coque en bois qui faisait
 office de barrière sur le pont.
 
 — Au fait, fit le grand brun en pivotant la tête vers Cazeneuve, plus de
-« mon capitaine » qui tienne. Je suis démissionnaire. Alors « Jules » ou
+« mon capitaine » qui tienne. Je suis démissionnaire. Alors « Jules » ou
 « Brunet » feront l’affaire.
 
 — Comme vous voudrez, Brunet.

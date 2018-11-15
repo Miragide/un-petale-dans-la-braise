@@ -23,25 +23,25 @@ japonais affairés à la constructions de pièces diverses et variées. Celles-c
 étaient volumineuses, destinées à l’assemblage pour ériger des vaisseaux marins
 pour la flotte Shōgunale.
 
-— Jules ?! s’exclama un individu qui émergeait d’une allée sur la gauche du
+— Jules ?! s’exclama un individu qui émergeait d’une allée sur la gauche du
 grand brun.
 
 Il s’agissait d’un homme aux trait européens, vêtu élegamment à l’occidentale.
 Au fur qu’il se rapprochait de Brunet, ce dernier reconnu cet homme au sourire
 franc et ému.
 
-— Léonce ! Ça, par exemple !
+— Léonce ! Ça, par exemple !
 
 Les deux hommes s’accordèrent une accolade familière, se tapotant mutuellement
 dans le dos.
 
-— Je n’en crois mes yeux ! dit Léonce en ôtant un instant ses bésicles rondes.
-Toi ici ! Comment ce fait-ce !
+— Je n’en crois mes yeux ! dit Léonce en ôtant un instant ses bésicles rondes.
+Toi ici ! Comment ce fait-ce !
 
 — Je suis en mission sur ordre de son altesse impériale, expliqua Brunet, le
-sourire aux lèvres. Et toi donc, camarade polytechnicien ?
+sourire aux lèvres. Et toi donc, camarade polytechnicien ?
 
-— Que d’honneurs ! C’est moi qui tient la maison debout, ici. Même si je passe
+— Que d’honneurs ! C’est moi qui tient la maison debout, ici. Même si je passe
 le plus clair de mon temps assis…
 
 Un rire. Quel ne fut pas le plaisir, pour Brunet, de voir des têtes familières
@@ -57,7 +57,7 @@ propension à chercher l’élégance dans ses manières et son allure. Il avait
 yeux étirés, les sourcils saillants, le nez aquilin et la bouche pincée. Sa
 barbe lonque et brune remontait jusqu’à ses gresses oreilles. Son front ample
 et ses cheveux bien peignés accentuaient son air de gentilhomme intellectuel,
-autant par son style vestimentaire, simple mais distingué : manteau en laine
+autant par son style vestimentaire, simple mais distingué : manteau en laine
 noir, sans fioriture, et pantalon brun de velours. Ses souliers demeuraient
 propres malgré la poussière ambiante qui régnait au dehors dans l’arsenal.
 
@@ -91,10 +91,10 @@ Lorsque le comodore américain Perry avait débarqué il y a quinze ans avec ses
 gros vaisseaux à canons pour encourager le Shōgun à autoriser l’installation
 d’un consulat à Yokohama ainsi que l’ouverture de certains ports… Cela n’a pas
 été très bien reçu, il faut le dire, par tous les japonais. Tu n’as rien
-remarqué de méprisant à leur égard ?
+remarqué de méprisant à leur égard ?
 
 — Au contraire. Mes futurs élèves montrent du zèle et de la sympathie. Dois-je
-m’inquiéter ?
+m’inquiéter ?
 
 — J’ai déjà été insulté et appréhendé par quelques fous. Rien de grave, mais il
 faut que tu gardes en tête que tes collègues et toi n’êtes pas dans le cœur de

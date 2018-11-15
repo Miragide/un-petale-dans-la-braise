@@ -6,7 +6,7 @@ rues étaient bordés d’arbres aux branches magnifiquement affublées de milli
 de pétales rosés, dont les teintes viraient au bisque ou au blanc de meudon.
 Les japonais s’émouvaient sous ce spectacle annuel, qu’ils célébraient, pour
 la plupart, assis aux pieds de ces arbres majestueux à siroter de l’alcool.
-Pratique qu’on appelait le « hanami », qui consistait à contempler les fleurs
+Pratique qu’on appelait le « hanami », qui consistait à contempler les fleurs
 de cerisier tant qu’elles étaient présentes. Car ce spectacle ne durait que
 quelques semaines tout au plus.
 
@@ -26,7 +26,7 @@ doute une jeune femme qui lui tournait le dos, face à la mer. Il ne pouvait
 apercevoir son visage. Elle revêtait un kimono rose aux motifs pourpres, ceint
 d’une ceinture incarnate. Elle portait un grand nœud de la même couleur dans
 son dos. Ses cheveux d’un noir de jeais, coiffés en un chignon typiquement
-japonais qu’on appelait coiffure en « pêche fendue », divisé en deux et serti
+japonais qu’on appelait coiffure en « pêche fendue », divisé en deux et serti
 d’une étoffe de soie écarlate, luisaient au soleil.
 
 Brunet essayait de s’imaginer son visage. Elle parassait si mystérieuse, si
@@ -77,14 +77,14 @@ Quant à lui, il était enivré par la moindre de ses manières et de ses mimiqu
 
 — Vous habitez à Otamura ?
 
-— Oui. Mon père est un commerçant d’étoffes de soie. Et vous ? Vous venez
-d’où ?
+— Oui. Mon père est un commerçant d’étoffes de soie. Et vous ? Vous venez
+d’où ?
 
 — Devinez.
 
 — Français ?
 
-— Impressionnant. Comment le saviez-vous ?
+— Impressionnant. Comment le saviez-vous ?
 
 — Je crois avoir déjà croisé des hommes qui vous ressemblaient et ils parlaient
 une langue que d’autres japonais disaient être le français.
@@ -97,20 +97,20 @@ plissés et le sourire étiré sous sa moustache. Instinctivement, ils se mirent
 
 — Votre pays est magnifique.
 
-— Merci beaucoup ! Et la France ?
+— Merci beaucoup ! Et la France ?
 
 — La France… Elle diffère. Beaucoup de beaux bâtiments dans les villes
 principales. Avec des rues pavés. Marseille par exemple. Une très belle ville
 portuaire. C’est de là qu’on est parti. Puis, on est arrivé à Yokohama.
 
-— Depuis quand ?
+— Depuis quand ?
 
 — Seulement trois mois.
 
 — C’est peu… Je gage que vous saurez découvrir d’autres charmes de notre pays,
 Seigneur Brunet.
 
-— Seigneur ? Monsieur, je vous prie !
+— Seigneur ? Monsieur, je vous prie !
 
 Elle rit à nouveau, consciente que l’étranger s’était un tant soi peu renseigné
 sur les titres japonais. Elle aimait se jouer de lui. Il la fascinait.
@@ -118,11 +118,11 @@ sur les titres japonais. Elle aimait se jouer de lui. Il la fascinait.
 — Vous ressemblez à un samouraï, monsieur Brunet.
 
 — Allons. Je ne suis qu’un humble serviteur de mon pays, amateur d’arts,
-correctement éduqué, peut-être, mais n’en faîtes point trop !
+correctement éduqué, peut-être, mais n’en faîtes point trop !
 
 — Vous dégagez… Une énergie.
 
-— Une énergie ?
+— Une énergie ?
 
 — Oui.
 
@@ -144,7 +144,7 @@ par leurs regards qu’ils devaient se séparer.
 — Non, non, ce n’est rien… Eh bien… À bientôt, mademoiselle Tomi qui vend des
 étoffes de soie.
 
-— À bientôt ! rit-elle alors qu’elle accorda un sourire radieux à Brunet.
+— À bientôt ! rit-elle alors qu’elle accorda un sourire radieux à Brunet.
 
 Ils s’éloignèrent. Elle se retournait de temps en temps, le même sourire aux
 lèvres, s’arrêtant un instant pour l’observer marcher.

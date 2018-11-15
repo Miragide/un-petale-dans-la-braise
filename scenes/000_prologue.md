@@ -20,13 +20,13 @@ isolationniste qui aura duré plus de deux siècles.
 
 Ainsi le clan Mōri, fidèle à l’empereur, mobilisa ce jour-là le gros de ses
 troupes dans l’espoir de fomenter un coup d’état, scandant sans retenue la
-devise qui motivait leurs desseins : « Révérez l’Empereur, expulsez les
-barbares ! »
+devise qui motivait leurs desseins : « Révérez l’Empereur, expulsez les
+barbares ! »
 
 Le palais impérial de Tōkyo était ainsi attaqué sur tous les fronts. Parmi les
 factions et les clans dévouées à protéger l’Empereur coûte que coûte, existait
 la légendaire milice du *Shinsengumi*, que l’on traduirait autrement par « 
-Nouveau Groupe d’Élus ». Réputée pour se ranger inconditionnellement du côté
+Nouveau Groupe d’Élus ». Réputée pour se ranger inconditionnellement du côté
 du *Shōgun*, elle avait pour mission principale de maintenir l’ordre dans
 la capitale impériale ; entre autre de mater toute rebélion contre le pouvoir
 et les figures politiques quelles qu’elles soient.
@@ -106,7 +106,7 @@ fait naître en lui une nausée.
 
 La soirée s’annonça tout aussi amère. Il avait contemplé, impuissant, les
 incendies causés par les fuyards du clan Mōri. Ceux-ci avaient ravagé une
-partie non-négligeable de Kyōto. « Et si je les avais poursuivis ? »,
+partie non-négligeable de Kyōto. « Et si je les avais poursuivis ? »,
 pensait-il.
 
 Mais ses émotions étaient trop fortes pour qu’il n’eût parlé. Faute de quoi il
@@ -121,7 +121,7 @@ sous le nom de *Bushidō*.
 
 Tous, ils étaient inquiets. Tous, ils se demandaient si l’obsolescence des
 sabres au profit des armes à feux et de l’artillerie ne signait pas l’arrêt
-de mort des guerriers « à l’ancienne », des chevaliers.
+de mort des guerriers « à l’ancienne », des chevaliers.
 
 Tous, ils se demandaient si la chevalerie, celle qu’a connue le Japon pendant
 plusieurs siècles, avait sa place dans ce monde.

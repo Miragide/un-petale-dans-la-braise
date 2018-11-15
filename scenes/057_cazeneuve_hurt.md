@@ -34,7 +34,7 @@ fuyaient en désordre à l’horizon.
 Cazeneuve, lui, galopa jusqu’au bataillon d’artillerie où Fortant et Ōtori se
 trouvaient. Il leur restait un peu de distance avec le reste des ennemis.
 
-— Cazeneuve ! hurla Fortant au vu de la jambe ensanglantée de son ami.
+— Cazeneuve ! hurla Fortant au vu de la jambe ensanglantée de son ami.
 
 — C’est mauvais… Très mauvais… gémit Cazeneuve, dont la douleur pouvait se lire
 sur le visage transpirant.

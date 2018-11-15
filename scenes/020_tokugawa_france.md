@@ -78,7 +78,7 @@ grand brun, qui s’exprimait non sans compassion ni éloquence.
 — Vous avez tant fait pour nous et l’idée que nos enseignements n’aient pu
 avoir raison de nos adversaires me tiraillent de l’intérieur. Mais je ne
 saurais m’avouer vaincu. Comment mes camarades et moi-même daignerions nous
-regarder dans une glace si nous rendions les armes maintenant ?
+regarder dans une glace si nous rendions les armes maintenant ?
 
 Il marquait un silence, inspectant d’un regard presque inquisiteur l’assemblée
 qui écoutait avec intérêt.
@@ -112,7 +112,7 @@ poursuivre la lutte n’eut pas l’effet escompté.
 
 Quelques jours, plus tard, en effet, Roches, qui était venu présenter le plan
 militaire de Brunet à Tokugawa, essuya un refus catégorique. Il se rendit à
-l’évidence : Tokugawa, s’il éprouvait quelque animosité à l’égard des clans du
+l’évidence : Tokugawa, s’il éprouvait quelque animosité à l’égard des clans du
 Sud, refusait catégoriquement de prendre les armes contre ce qu’il qualifiait
 d’armée impériale.
 

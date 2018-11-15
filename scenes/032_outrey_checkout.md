@@ -34,10 +34,10 @@ du regard ébahi de ses collégues. Notamment Fortant qui s’empressa égalemen
 de quitter la pièce. Émergeant dans le couloir, il vit Cazeneuve qui passait
 par là, mais pas de Brunet.
 
-— Quelle mouche l’a piqué ? demanda Fortant en voyant la mine amusée de
+— Quelle mouche l’a piqué ? demanda Fortant en voyant la mine amusée de
 Cazeneuve.
 
-— De qui ?
+— De qui ?
 
 — Capitaine Brunet.
 

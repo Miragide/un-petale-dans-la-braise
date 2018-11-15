@@ -25,7 +25,7 @@ sans sommation l’homme qui avait tenté de s’échapper.
 Il s’adressa ainsi à ses hommes qui avaient assisté à l’exécution sommaire.
 
 — Voulez-vous mourir comme ce lache ou au devant de la bataille face à
-l’ennemi ?
+l’ennemi ?
 
 Il avait tonitrué, brandissant sa lame maculée et poussant un cri de guerre
 qui enhardit ses troupes comme jamais. Shimada, qui était d’ordinaire réservé,

@@ -28,7 +28,7 @@ Shimada. L’homme était grisonnant.
 Le jeune garçon ouvrit les yeux et se redressa. Son visage s’illumina à la vue
 du grand Shimada, lui-même heureux de retrouver un ancien frère d’armes.
 
-— Qu’est-ce que tu deviens, jeune homme ? questionna Shimada.
+— Qu’est-ce que tu deviens, jeune homme ? questionna Shimada.
 
 — Oh… Pas grand-chose. J’ai fini par m’engager dans l’armée impériale. Je
 voulais donner un sens à ma vie et la tracer à mon tour après tout ce que
@@ -45,7 +45,7 @@ gouvernement impérial.
 Shimada rit presque grassement.
 
 — N’est-ce pas ironique que les clans qui ont monté toute cette mascarade afin
-d’amener l’Empereur au pouvoir se voient à jouer les victimes et les martyrs ?
+d’amener l’Empereur au pouvoir se voient à jouer les victimes et les martyrs ?
 
 — Va savoir. Ce sont eux qui sont considérés comme les défenseurs de la cause
 samouraï. Comme les dermiers samouraïs.
@@ -72,7 +72,7 @@ mouvementée de l’un et du quotidien monotone de l’autre.
 
 — Bien… Les meilleures choses ont une fin, conclut Shimada. Passe le bonjour à
 toutes les têtes brûlées du feu *Shinsengumi* si tant est que tu en recroises
-certains !
+certains !
 
 — Merci pour ce moment, Monsieur Shimada. Prenez soin de vous…
 

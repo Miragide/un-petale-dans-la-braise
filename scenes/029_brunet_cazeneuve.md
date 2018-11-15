@@ -11,7 +11,7 @@ instructions se dégradait.
 
 Y avait-il pire supplice que de rester dans le flou, de continuer à servir une
 cause qui n’en vallait plus la peine et, par-dessus le marché, recevoir une
-solde que lui-même ne pensait pas mériter ?
+solde que lui-même ne pensait pas mériter ?
 
 — Tout cela est grotesque…! jacta-t-il.
 
@@ -62,7 +62,7 @@ deux entamèrent une marche modérée.
 — C’est… Une journée magnifique, avoua Brunet.
 
 — Ce n’est pas en France que l’on saurait s’émouvoir d’un tel spectacle,
-n’est-ce pas ?
+n’est-ce pas ?
 
 — Non… Et les cerisiers de notre pays, je dois l’avouer, ne sont pas aussi…
 Comment dire…
@@ -85,9 +85,9 @@ samouraï.
 — Ce que tu dis est beau. Je regrette parfois que trop peu de gens eussent
 emprunté de tels propos au cour de ma puérile existence.
 
-— Pourquoi regretter quelque chose qui germe déjà en vous, mon capitaine ?
+— Pourquoi regretter quelque chose qui germe déjà en vous, mon capitaine ?
 
-— Que dîtes-vous ?
+— Que dîtes-vous ?
 
 — Il ne me faut pas de brillantes études à l’École polytechnique pour apprécier
 l’homme és sciences que vous êtes, doublé d’un artiste hors pair ; d’un poète
@@ -95,7 +95,7 @@ convaincu qu’un homme complet sait cultiver cette part de féminité, ces
 émotions qui, lorsque nous les maîtrisons, font de nous des Hommes, des vrais.
 Et puis, à notre âge, nous ne sommes plus à l’école, enfin… Vous croyez que les
 samouraïs ont eu besoin de l’Occident pour en arriver à de tels niveau
-de recul sur la vie et d’érudition ?
+de recul sur la vie et d’érudition ?
 
 Brunet ne répondit pas. Cette révélation, de la part d’un homme tel que
 Cazeneuve, lui avait fait comme l’effet d’un électrochoc.
@@ -104,7 +104,7 @@ Cazeneuve, lui avait fait comme l’effet d’un électrochoc.
 
 — C’est bien. Il paraît que c’est le début de la sagesse, mon capitaine. Mais
 vous n’êtes pas lamentable, non ; pas quand je vois vos jeunes élèves souffler
-le mot « samouraï » quand ils pensent à vous.
+le mot « samouraï » quand ils pensent à vous.
 
 Brunet s’arrêta, la mine interdite, toisant Cazeneuve qui à son tour
 s’arrêtait.

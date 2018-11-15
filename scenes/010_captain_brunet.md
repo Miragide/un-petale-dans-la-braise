@@ -1,4 +1,4 @@
-# « Mon capitaine ! » {-}
+# « Mon capitaine ! » {-}
 
 La mission militaire française avait continué à faire des merveilles. Si bien
 que Tokugawa avait décidé d’étendre leur instruction à tous les clans encore
@@ -36,7 +36,7 @@ souriant de manière aimable à ceux qui croisaient son regard. Il se penchait
 quelque peu sur la gauche pour essayer de s’entendre avec son voisin Cazeneuve,
 qui montrait tout autant d’engouement.
 
-Mais l’on demanda le silence, Chanoine faisant de répétés « chuts », rejoint
+Mais l’on demanda le silence, Chanoine faisant de répétés « chuts », rejoint
 par ses voisins.
 
 Tous se murèrent dans un silence de plomb, observant l’européen qui faisait
@@ -54,7 +54,7 @@ Il marqua un silence. Certains Français, desinhibés par l’alcool, comprirent
 qu’il fallu applaudir. Chanoine se laissa décontenancé, prit d’un éclat de
 rire alors que certains scandaient joyeusement son nom.
 
-— Ce n’est pas moi qu’il faut féliciter, mais vous ! Un capitaine n’est un bon
+— Ce n’est pas moi qu’il faut féliciter, mais vous ! Un capitaine n’est un bon
 capitaine que si ses propres hommes le font remarquer par leur sérieux, leur
 résultat… Et il serait bien inconvenu d’usurper le mérite qui est vôtre. C’est
 vous-mêmes qu’il convient d’applaudir.
@@ -69,7 +69,7 @@ capitaine quand j’en vois un.
 
 Sans surprise pour certains, le regard de Chanoine se tourna vers Brunet qui,
 s’il n’était pas d’ordinaire aussi zélé et orateur que son supérieur dans de
-telles circonstances, ajouta :
+telles circonstances, ajouta :
 
 — C’est, mes chers frères d’armes, amis japomais, avec une immense joie que je
 fais porter à votre connaissance ma promotion en tant que capitaine.
@@ -95,8 +95,8 @@ l’oignon pour clore ce sommaire discours en toute beauté, ne trouvez-vous pas
 Approuvé à l’unanimité par ses collègues, tous se mirent à chanter le fameux
 chant de l’oignon. Chanoine fut gagné par l’excitation. Même les Japonais,
 amusés par l’exhaltation des Français, se joignirent en cours de route au chant
-en assimilant le refrain. « Au pas, camarade, au pas, camarade, au pas, au pas,
-au pas. »
+en assimilant le refrain. « Au pas, camarade, au pas, camarade, au pas, au pas,
+au pas. »
 
 On mangea et on but dans la joie et la célébration, comme s’il n’y aurait plus
 de telle occasion de pareille convivialité.

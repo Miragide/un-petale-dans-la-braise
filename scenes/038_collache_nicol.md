@@ -7,7 +7,7 @@ les bras croisés, le regard baissé devant lui. Il se trouvait dans le bureau
 d’Outrey, à là légation de Yokohama. Celui-ci avait la tête dans les mains,
 presque cambré, comme abattu par quelque sentiment de désespoir.
 
-— Ils risquent de tout gâcher avec leur folie ! cria presque Outrey. Pourquoi
+— Ils risquent de tout gâcher avec leur folie ! cria presque Outrey. Pourquoi
 faut-il qu’il s’engagent dans une pareille chose alors que je me tue à la tâche
 pour assainir nos relations avec la cour Impériale ?
 
@@ -48,14 +48,14 @@ entre Bergasse et Outrey. Et partit aussi vite qu’il était venu.
 Il déambula dans les couloirs, accordant des sourirs céramiques aux inconnus
 de la légation et en demandant à ses collégues.
 
-— Il est où, Nicol ?
+— Il est où, Nicol ?
 
 — Sans doute à charger du caisson sur le port.
 
 — Ah.
 
 Une évidence. Que faisait, après tout, un marin qui n’égarait pas une oreille
-indiscrète prêt du bureau de l’ambassadeur ? Il travaillait.
+indiscrète prêt du bureau de l’ambassadeur ? Il travaillait.
 
 Mais Collache avait perdu toute notion de travail. Il mourrait d’envie de
 raconter ce potin à Nicol. Il ne tenait plus en place, et quitter la légation
@@ -75,13 +75,13 @@ menaçant Collache d’un charabia incompréhensible.
 
 Le marin leva les mains en signe de protestation.
 
-— Mais je vous dis que je suis désolé. Dé-so-lé !
+— Mais je vous dis que je suis désolé. Dé-so-lé !
 
 Son visage trahissait un rictus. Il se doutait que le samouraï ne le comprenait
 pas. Mais ça l’amusait.
 
 Un peu moins lorsqu’il dût prendre la poudre d’Escampette alors que le Japonais
-le suivait, prêt à en découdre, jurant des « merde ! » à tout va. Mais il
+le suivait, prêt à en découdre, jurant des « merde ! » à tout va. Mais il
 s’amusait quand même, au vu de sa vitesse qui surpassait de loin celle de
 l’homme au sabre.
 
@@ -90,23 +90,23 @@ mains sur les genoux. Il avait sans doute dû bousculer une ou deux personnes
 de plus. Et par malchance, il n’avait pas réussi à semer cet homme pugnace qui
 maugréait quelque insulte contre le jeune Marin.
 
-— Putain ! Mais il va pas me lâcher !
+— Putain ! Mais il va pas me lâcher !
 
 Il continua sa course, commençant à paniquer. Là, au bout du quai, trois marins
-lézardaient au soleil. Parmi eux :
+lézardaient au soleil. Parmi eux :
 
-— Nicol !
+— Nicol !
 
-— Collache !
+— Collache !
 
-— Aide-moi, copain ! Le samouraï, là, il est pétard.
+— Aide-moi, copain ! Le samouraï, là, il est pétard.
 
 Collache désigna du doigt la silhouette de l’homme en kimono qui arrêta sa
 course, lame au clair, suivi par quelques autochtones curieux.
 
 Nicol décrocha le pistolet de sa ceinture et tint le sabreur en joue.
 
-— Eh, branle-banane ! Tu touches pas à mon ami ou je te jure que je carre ça
+— Eh, branle-banane ! Tu touches pas à mon ami ou je te jure que je carre ça
 dans ton fondement et que je te creuse un deuxième trou de balle. Est-ce que
 tu comprends quand je te parle ou il te faut un avant-goût ?
 
@@ -114,12 +114,12 @@ Il avait presque hurlé, avant de baisser le calibre et de faire feu aux pieds
 du Japonais qui se raidit un instant et, contre toute attente, courut sans
 demander son reste.
 
-— Oh mince, oooh mince, Nicol, tu m’as sauvé les miches !
+— Oh mince, oooh mince, Nicol, tu m’as sauvé les miches !
 
 Nicol ne répondit pas, foudroyant du regard le fuyard tandis qu’il s’approchait
 dangereusement de la populace curieuse.
 
-— Dégagez ou je vous jure que je commets un meurtre ! hurlait-il, toujours
+— Dégagez ou je vous jure que je commets un meurtre ! hurlait-il, toujours
 en français.
 
 Si les locaux ne pipèrent mot, le langage du corps, lui, était clair. Nicol
@@ -136,10 +136,10 @@ gros et plat, sa bouche large et sa mâchoire carrée lui donnait un air de
 parfait archétype du marin. Par ailleurs, il était vêtu de la même dégaine
 que Collache.
 
-— Saloperie, Collache ! Qu’est-ce que t’es allé foutre ! Tu m’as foutu la
-trouille !
+— Saloperie, Collache ! Qu’est-ce que t’es allé foutre ! Tu m’as foutu la
+trouille !
 
-— Mais du calme, copain ! Je l’ai juste bousculé et il m’a fait une scène !
+— Mais du calme, copain ! Je l’ai juste bousculé et il m’a fait une scène !
 En plus, je lui ai dit désolé, et tout et tout…
 
 Collache s’arrêta, voyant que Nicol était remonté, rouge de colère. Les deux
@@ -150,7 +150,7 @@ Tous n’avaient pas oublié le tragique incident de Sakai et, malgré la
 réparation qui eut été faite, les marins éprouvaient une peur légitime pour
 ces sympathisants impérialistes.
 
-— Te fous pas de ma gueule, Collache ! C’est pas le moment de rire !
+— Te fous pas de ma gueule, Collache ! C’est pas le moment de rire !
 
 — Oh, je sais, mec. Mais regarde. Je me fais chier, moi. D’ailleurs, faut que
 je te parle d’une affaire, mon gars. Viens voir tonton Collache, et tout et
@@ -164,8 +164,8 @@ narines.
 
 — Mais va te faire foutre, Collache !
 
-— Du caaalme, moi aussi j’avais peur ! Ça me faisait bobo à l’estomac… Mais eh,
-reviens, mec !
+— Du caaalme, moi aussi j’avais peur ! Ça me faisait bobo à l’estomac… Mais eh,
+reviens, mec !
 
 Nicol s’était éloigné, plus furieux que jamais.
 
@@ -185,20 +185,20 @@ Nicol s’approcha à nouveau, et Collache planta son regard dans le sien.
 
 — J’ai surpris une conversation entre le vice amiral et Outrey. Apparemment y a
 cinq gars de la grande muette qui ont démissionné pour aller aider les
-partisants de l’ancien Shōgun !
+partisants de l’ancien Shōgun !
 
-— Jure !
+— Jure !
 
-— Je jure ! C’est notre chance de faire quelque chose de notre vie, Nicol !
+— Je jure ! C’est notre chance de faire quelque chose de notre vie, Nicol !
 
-— Tu plaisantes ? On a déjà de la chance de voir du pays. Qu’est-ce que tu
-parles d’aller faire la guerre dans le Nord ?
+— Tu plaisantes ? On a déjà de la chance de voir du pays. Qu’est-ce que tu
+parles d’aller faire la guerre dans le Nord ?
 
 — Je te parle de… suivre son destin, voilà. Sérieux, mec, tu peux pas laisser
 des frères français de notre bonne France tout seul là-haut. En plus, il va
-faire si froid… Allez !
+faire si froid… Allez !
 
-— T’es fou, Eugène. T’es fou ! Tu sais ça ?
+— T’es fou, Eugène. T’es fou ! Tu sais ça ?
 
 — C’est comme ça que tu m’aimes.
 

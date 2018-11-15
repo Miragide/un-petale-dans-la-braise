@@ -25,7 +25,7 @@ cuisante à l’armée de Tokugawa.
 — Cette fois, il y a moins de samouraïs habillés à l’ancienne, constata Brunet.
 
 — Je me risque à dire qu’il n’y en a aucun, ajouta Cazeneuve. Tu en as vu,
-toi ?
+toi ?
 
 Brunet fronça légèrement les sourcils et balaya la foule du regard, avant de
 le porter sur Cazeneuve, perplexe.
@@ -42,7 +42,7 @@ est manipulé par les provinces du Sud, donc par des seigneurs qui ont leurs
 intérêts propres. Et lorsqu’une aristocratie est bien assise, il est difficile
 de l’en déloger.
 
-— Insinues-tu que les samouraïs sont des aristocrates ?
+— Insinues-tu que les samouraïs sont des aristocrates ?
 
 — C’est avant tout un titre de noblesse, et il ne saurait parfois s’agir que
 d’une façade. Comme partout.
@@ -156,12 +156,12 @@ en coin. Tous deux semblaient s’accorder sur un point.
 
 — Seigneur Hijikata, poursuivit Enomoto, vice-commandant du *Shinsengumi*,
 originaire de la ville de Tama, je vous en conjure : dirigez nos hommes à la
-guerre contre les impérialistes depuis Ezo !
+guerre contre les impérialistes depuis Ezo !
 
 Plus personne ne parlait. Hijikata même demeurait immobile, mais l’on pouvait
 voir sa silhouette se mouvoir dans une grande inspiration.
 
-— J’accepte sous une seule et unique condition ! répondit-il.
+— J’accepte sous une seule et unique condition ! répondit-il.
 
 L’attente était insupportable. Beaucoup, parmi l’assistance, voyaient en
 Hijikata ce meneur d’hommes charismatique qui avait fait trembler les ennemis
@@ -169,7 +169,7 @@ du Shōgun.
 
 — Les ordres devront être suivis dans la plus totale servitude, et je me
 réserve le droit de pourfendre quiconque désobéirait à mon commandement ou
-s’écarterait de la voie du guerrier !
+s’écarterait de la voie du guerrier !
 
 Sur ces paroles, le vice-commandant du *Shinsengumi* s’inclina profondément à
 l’intention de Enomoto puis, s’étant dirigé vers la sortie de la salle de
@@ -180,26 +180,26 @@ L’on attendit qu’il ait coulissé la porte pour la refermer, et qu’il se s
 éloigné éventuellement.
 
 — C’est aberrant ! Jamais je ne remettrai mes hommes au commandement de cette
-racaille ! fit l’un des officiers.
+racaille ! fit l’un des officiers.
 
 — Seigneur Hijikata n’est pas une racaille, protestait un autre. Il a voué sa
 cause au Shōgun depuis le début avec ses amis et il restera dans le même camp
 jusqu’à la fin. C’est l’homme le plus intègre et le plus droit que je
-connaisse !
+connaisse !
 
 — Vous appelez ça droit, vous, de racketter les marchands de Kyōto pour assurer
-leur protection ? On ne les appelle pas les « Loups de Mibu » pour rien.
-Racaille ! Et puis, il n’est même pas un samouraï, comment peut-il prétendre
-à diriger quelque armée que ce soit !
+leur protection ? On ne les appelle pas les « Loups de Mibu » pour rien.
+Racaille ! Et puis, il n’est même pas un samouraï, comment peut-il prétendre
+à diriger quelque armée que ce soit !
 
-— Menteur ! Monsieur Hijikata est un homme tout ce qu’il y a de plus
-respectable ! C’est grâce à lui que le *Shinsengumi* a cessé ses activités de
-vandalisme et que les rues de Kyōto ont été sûres pendant de nombreux mois !
+— Menteur ! Monsieur Hijikata est un homme tout ce qu’il y a de plus
+respectable ! C’est grâce à lui que le *Shinsengumi* a cessé ses activités de
+vandalisme et que les rues de Kyōto ont été sûres pendant de nombreux mois !
 Pourquoi croyez-vous qu’il ait imposé de sabrer quiconque s’écartait de la voie
-du guerrier ? Ce sont les conséquences naturelles du relâchement et de
+du guerrier ? Ce sont les conséquences naturelles du relâchement et de
 l’hypocrisie auquel nous sommes tous sujets. Il ne fait que suivre le *Bushidō*
 à la lettre, comme tous les chevaliers de ce pays ont juré de le faire, et vous
-osez le traiter de racaille ?
+osez le traiter de racaille ?
 
 — Calmez-vous, ordonna Enomoto.
 
@@ -208,7 +208,7 @@ tandis que d’autres décriaient cette possibilité.
 
 Brunet avait perdu son regard sur le sol, comme retranché en lui-même.
 
-— Tu en penses quoi ? questionna Cazeneuve.
+— Tu en penses quoi ? questionna Cazeneuve.
 
 Brunet releva machinalement la tête, portant son attention sur son ami.
 

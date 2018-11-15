@@ -7,7 +7,7 @@ hydrographiques nécessaires à la cartographie de l’archipel.
 
 Le temps, froid mais clair, ne laissait présager aucune mauvaise augure ce
 jour-là. Le Japon était officiellement sous la gouverne de l’Empereur. Sans
-rappeler que la doctrine « Révérez l’Empereur, repoussez les barbares » n’était
+rappeler que la doctrine « Révérez l’Empereur, repoussez les barbares » n’était
 plus d’actualité. L’heure était à la modernisation rapide du pays et de
 l’apprentissage des erreurs passées.
 
@@ -31,7 +31,7 @@ sortirent leur lame au clair, menaçant les étrangers qui, en proie à l’effr
 prirent leurs jambes à leur cou alors que d’autres fanatiques firent feux
 derrière eux.
 
-— Lancez la machine ! hurla l’un des matelots avant d’essuyer un tir létal
+— Lancez la machine ! hurla l’un des matelots avant d’essuyer un tir létal
 dans le crâne.
 
 Les autres se jetèrent dans l’eau glacée, nageant maladroitement de l’autre

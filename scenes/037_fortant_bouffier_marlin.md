@@ -1,6 +1,6 @@
 # Retardataires {-}
 
-— C’est une plaisanterie ?
+— C’est une plaisanterie ?
 
 Chanoine se trouvait dans sa cabine, la mine interdite, assis face à trois de
 ses instructeurs français qui leur tendait, d’une manière quelque pe
@@ -20,18 +20,18 @@ pieds, sous-instructeur pour l’infanterie.
 remets ma démission du grade de sergent au bataillon de chasseurs à pieds de
 la Garde Impériale, sous-instructeur pour l’infanterie.
 
-— Épargnez-moi votre scène ! Mais à quoi vous jouez, là ? Vous avez idée des
+— Épargnez-moi votre scène ! Mais à quoi vous jouez, là ? Vous avez idée des
 conséquences de vos actes ? Et pour qui je vais passer auprès de Monsieur
-Outrey ?
+Outrey ?
 
 Mais les trois ne se laissèrent pas décontenancés par la remarque. Et Fortant
-de répondre :
+de répondre :
 
 — Nous sommes convaincus, mon capitaine, qu’il est de notre devoir de soutenir
 les fidèles à la cause du Shōgun dans leur entreprise. En acceptant notre
 démission, vous acceptez que l’armée française n’aura aucun lien avec le projet
 de résistance au Nord du pays. Nous assumons l’entière responsabilité de nos
-actes et demandons à ce que vous acceptiez promptement notre démission !
+actes et demandons à ce que vous acceptiez promptement notre démission !
 
 Chanoine soupira longuement. Il s’affala sur sa chaise, le front poisseux qu’il
 essuya d’un revers de manche. Il releva le menton.
@@ -43,8 +43,8 @@ accueuillis, croyez-le ou non, on a fini par les aimer. En on ne veut pas
 laisser le capitaine Brunet seul aux commandes. Il a besoin de nous.
 
 — Tout pareil que mes camarades, conclut Marlin. C’est là-bas que se trouve ma
-place. Pas ici. C’est mon p’tit cœur qui le dit et pis c’est tout ! Et que dit
-le vôtre tant qu’à faire ?
+place. Pas ici. C’est mon p’tit cœur qui le dit et pis c’est tout ! Et que dit
+le vôtre tant qu’à faire ?
 
 Chanoine secoua la tête.
 
@@ -67,6 +67,6 @@ Descharmes.
 moments aussi cruciaux… Ah… C’est un peu comme mes gosses, ces braves-gens.
 J’en ai mal au cœur.
 
-— Ah, non, mon capitaine. Ça, c’est le mal de mer !
+— Ah, non, mon capitaine. Ça, c’est le mal de mer !
 
 Ils rirent. Jusqu’aux larmes.

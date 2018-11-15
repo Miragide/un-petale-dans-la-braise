@@ -37,7 +37,7 @@ L’inconnu tira à nouveau sur son cigare.
 
 — J’ai bon espoir de rallier quelques irréductibles du *Shinsengumi* également.
 
-— Et ce Français, dont tu m’as fait l’éloge ?
+— Et ce Français, dont tu m’as fait l’éloge ?
 
 Le mystérieux hôte recracha un volute de fumée épaisse.
 

@@ -13,7 +13,7 @@ Japonais, entrant dans une chambre impeccablement rangée.
 politesse.
 
 — Ça va, ça va… J’étais entrain de réviser mon japonais, eussé-je l’esprit
-quelque peu égaré. Que puis-je pour toi ?
+quelque peu égaré. Que puis-je pour toi ?
 
 — J’ai reçu un billet de Seigneur Ōtori…!
 
@@ -29,18 +29,18 @@ Kintaro grimaçait. Il avait presque envie de crier, d’exhalter sa joie, pouss
 un cri martial libérateur d’une frustration trop longtemps fermentée. Mais il
 restait un jeune samouraï. La tenue était de mise.
 
-— Tu es sérieux ? Mais Seigneur Tokugawa ne veut plus prendre les armes !
+— Tu es sérieux ? Mais Seigneur Tokugawa ne veut plus prendre les armes !
 
 — Professeur ! On sait tous qu’il s’agit d’une manœuvre des clans du Sud et que
 l’Empereur se fait manipuler. Nous avons pris le parti de nous battre. Nous
-sommes fidèles au Seigneur Tokugawa et à l’Empereur. Pas aux provinces du Sud !
+sommes fidèles au Seigneur Tokugawa et à l’Empereur. Pas aux provinces du Sud !
 
 — C’est de la folie.
 
-— C’est de la folie. Et devinez quoi, professeur ? Ōtori réclame votre
+— C’est de la folie. Et devinez quoi, professeur ? Ōtori réclame votre
 présence.
 
-— Ma présence ? Mais c’est insensé !
+— Ma présence ? Mais c’est insensé !
 
 — Vous trouvez ! On fait l’unanimité ici à la caserne. Vos qualités sont
 indispensables et on ne pourra pas bâtir un monde nouveau sans votre aide. Vous
@@ -49,7 +49,7 @@ devez venir, Brunet. Vous êtes un samouraï.
 Le jeune Kintaro se dirigeait vers la sortie, s’arrêtant devant la porte, dos
 au grand brun qui observait son jeune élève d’un air passionné.
 
-— Suis-je un samouraï, professeur Brunet ?
+— Suis-je un samouraï, professeur Brunet ?
 
 — Au moins de titre, cela va de soi.
 

@@ -49,7 +49,7 @@ terminaient en de petites rouflaquettes sur les extrémités de sa grosse
 mâchoire. Il avait les sourcils acérés, tandis que ses grands yeux globuleux,
 en amande, lui octroyaient un air rustre, accentué par un nez applati et des
 lèvres larges arqués en une moue antipathique. On ne lui avait pas accordé le
-surnom de « lutteur sumo » pour rien, quand bien même il connaissait davantage
+surnom de « lutteur sumo » pour rien, quand bien même il connaissait davantage
 l’art du sabre que les techniques à mains nues.
 
 — Ce monde n’a plus de place pour les guerriers de notre trempe… s’abandonna
@@ -60,7 +60,7 @@ Il avait eu le sentiment d’avoir contenu trop longtemps en lui ces paroles, ce
 au prix de nombreuses vies, de nombreuses têtes tombées tant chez l’ennemi
 qu’au sein du *Shinsengumi*.
 
-— Que comptez-vous faire, commandant ? demanda Saitō.
+— Que comptez-vous faire, commandant ? demanda Saitō.
 
 — Je vais rejoindre la résistance au Nord avec Monsieur Ōtori. Je vous concède
 à tous les trois que j’ai le sentiment de mener un combat perdu d’avance. Mais

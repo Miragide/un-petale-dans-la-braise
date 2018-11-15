@@ -1,4 +1,4 @@
-# Défaite cuisante ? {-}
+# Défaite cuisante ? {-}
 
 — Je suis désolé.
 
@@ -12,7 +12,7 @@ vous de vous exprimer en la sorte, mais je ne pouvais rester indifférent face
 à cette scène où le brave homme à qui nous avons prêté nos services s’en est
 retrouvé aussi désespéré. Je n’aurais point dû.
 
-– Arrête donc, coupa Chanoine. Tu l’as dit : tu n’as fait qu’exprimer tout haut
+– Arrête donc, coupa Chanoine. Tu l’as dit : tu n’as fait qu’exprimer tout haut
 ce que des milliers d’hommes pensaient tout bas. Même si l’ancien Shōgun nous
 avait convoqués pour obtenir un avis sur la situation, nous ne sommes pas des
 faiseurs de miracles. Nous sommes avant tout des militaires au service de son
@@ -21,7 +21,7 @@ logique, pas interférer avec la présente mission.
 
 — C’est alors moi qui suis désolé, mon capitaine.
 
-— Je n’ai pas précisé « en toute logique » pour rien. Tout homme honnête aurait
+— Je n’ai pas précisé « en toute logique » pour rien. Tout homme honnête aurait
 tenu les mêmes propos que toi. Et je n’ai pas le sentiment que tu aies condamné
 qui que ce soit. Les Japonais ont le sentiment de lutter contre une déité. Tu
 n’y es pour rien. Nous n’y sommes pour rien.
@@ -32,7 +32,7 @@ grand brun était rongé par l’amertume, la culpabilité et l’impuissance. I
 frotta son front poisseux d’un revers de manche, égarant momentanément son
 regard avant de le porter de nouveau sur son homologue et de demander :
 
-— Quelle est la suite ?
+— Quelle est la suite ?
 
 — On continue l’exercice de nos fonctions tant que Tokugawa n’arrête pas
 officiellement notre mission. C’est une situation frustrante, j’en conviens,
@@ -52,6 +52,6 @@ plus vite après cela.
 Il vida son verre de moitié, posant sur le capitaine Chanoine un regard de
 chien battu, auquel ce dernier n’accorda aucun assentiment. Il haussa les
 épaules, voyant qu’il ne pourrait rien faire de plus pour le grand brun et,
-se levant promptement, quitta son ami sur ces paroles :
+se levant promptement, quitta son ami sur ces paroles :
 
 — Tu vaux mieux que ça.

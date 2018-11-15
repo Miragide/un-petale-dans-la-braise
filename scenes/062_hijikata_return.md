@@ -1,6 +1,6 @@
 # Vers une mort certaine {-}
 
-— Où sont-ils tous passés ?!
+— Où sont-ils tous passés ?!
 
 Hijikata fronçait les sourcils tandis qu’il plantait un regard furieux dans
 celui de Ichimura.
@@ -39,10 +39,10 @@ Le jeune garçon se présenta à son maître qui avait repris du poil de la bêt
 — Tu vas partir pour Yokohama. J’ai des choses à te confier pour que tu les
 portes à mon beau frère resté là-bas.
 
-— Maître ! Demandez à quelqu’un d’autre ! Je me suis entraîné sans relâche pour
-mourir avec Shimada et vous. Je ne partirai pas !
+— Maître ! Demandez à quelqu’un d’autre ! Je me suis entraîné sans relâche pour
+mourir avec Shimada et vous. Je ne partirai pas !
 
-— Si tu refuses de m’obéir, je te pourfends sur-le-champ ! gronda Hijikata.
+— Si tu refuses de m’obéir, je te pourfends sur-le-champ ! gronda Hijikata.
 
 Ichimura déglutit. Finissant par obtempérer, il suivit son maître dans son
 bureau pour faire l’inventaire.
@@ -50,9 +50,9 @@ bureau pour faire l’inventaire.
 — De l’argent pour la famille du soldat que j’ai été forcé d’exécuter, commença
 Hijikata. Une mèche de cheveux, une photographie de moi, une missive et les
 deux sabres que je portais au *Shinsengumi*. Tout cela à mon beau frèrè. Tu
-as compris ?
+as compris ?
 
-— Oui, maître !
+— Oui, maître !
 
 — Enfin… Si tant est que tu recroises la route de Monsieur Brunet… Je voudrais
 que tu lui remettes ceci.
@@ -60,7 +60,7 @@ que tu lui remettes ceci.
 Il tendit une seconde missive, distinctive, à Ichimura, qui s’occupait de
 ranger les effets encombrant dans un baluchon.
 
-— Entendu… Oui !
+— Entendu… Oui !
 
 — Et maintenant, pars. Je veux te voir prendre le premier bateau en partance
 pour le Sud.

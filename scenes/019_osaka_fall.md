@@ -10,7 +10,7 @@ Le moral des troupes était au plus bas et les rescapés des différentes
 batailles avaient trouvé refuge au château d’Ōsaka. Le Shōgun était réuni avec
 son état major.
 
-— Comment des troupes aussi peu nombreuses ont pu avoir raison de notre armée ?
+— Comment des troupes aussi peu nombreuses ont pu avoir raison de notre armée ?
 demanda-t-il sèchement.
 
 Son habituelle expression de terreur était comme un coup de grâce, un appel
@@ -42,7 +42,7 @@ s’étaient, peut-être nullement rendu compte.
 avantage. Nous allons voir si leur équipement de qualité auront raison de
 mes hommes ! Je vais les renvoyer dans leur province comme mes prédecesseurs
 l’ont fait il y a deux siècles et je ferai peser de lourds impôts sur leur
-tête ! Préparez au combat tous ceux qu’il nous reste. Ils ne s’en tireront pas
+tête ! Préparez au combat tous ceux qu’il nous reste. Ils ne s’en tireront pas
 à si bon compte après avoir monté le Mikado contre ma personne.
 
 Il avait presque hurlé sur ses conseillers militaires et sur Chanoine, ce
@@ -58,7 +58,7 @@ Tokugawa.
 Ce dernier lut la correspondance qu’il étala sur la table basse en bois
 d’acajou.
 
-— Je suis considéré comme un ennemi de la Cour Impériale ! avoua Tokugawa, la
+— Je suis considéré comme un ennemi de la Cour Impériale ! avoua Tokugawa, la
 mine interdite plus que jamais.
 
 — Sauf votre respect, répondit l’un des seigneurs de guerre, il s’agit
@@ -84,13 +84,13 @@ sur d’autres, une impression de terreur qui, Chanoine le sentait, ne
 concernaient pas le tournant industriel de la guerre qui hissait l’artillerie
 lourde au-dessus des armes de poing dépréciables.
 
-C’était une toute autre chose. Mais quoi ?
+C’était une toute autre chose. Mais quoi ?
 
 En retrait, Brunet et Cazeneuve se tenaient adossé à un muret, le regard
 sombre.
 
 — Un an. Une année acharnée pour en arriver à un résultat aussi… Pitoyable.
-Qu’avons-nous fait au bon Dieu ? demanda Brunet à son comparse.
+Qu’avons-nous fait au bon Dieu ? demanda Brunet à son comparse.
 
 — À qui le demandes-tu. La cavalerie que l’officier Descharmes et moi-même
 avons formée s’est retrouvée complètement inefficace face aux lignes ennemies,

@@ -17,7 +17,7 @@ sous sa tignasse volumineuse trônait un képi.
 
 Au même titre que les autres membres de la mission, Brunet portait l’uniforme
 français, avec ses variantes selon le grade et le rôle d’instruction à
-dispenser. Le grand brun était plutôt décoré : deux médailles à son buste
+dispenser. Le grand brun était plutôt décoré : deux médailles à son buste
 témoignait tant des exploits passés que de sa dévotion à servir les causes
 française où qu’il se trouve. Son uniforme était teinté de bleu,
 principalement, tandis que des motifs de nœuds hongrois dorés ornaient la
@@ -129,7 +129,7 @@ temps ; nous allons monter sur la Guerrière où le contre-amiral Pierre Gustav
 Roze va tous vous recevoir à son tour et vous faire un récapitulatif de la
 mission et de ce qui est attendu par chacun de vous.
 
-Et tous, ils marchèrent en direction du navire ainsi baptisé la « Guerrière »,
+Et tous, ils marchèrent en direction du navire ainsi baptisé la « Guerrière »,
 qui mouillait à trois quais de l’Alphée. Sur le pont, le contre amiral
 attendait en compagnie d’un état-major plutôt conséquent. Tous semblaient par
 ailleurs davantage décorés que les membres de la mission qui se présentaient
@@ -239,7 +239,7 @@ et sa sainte horreur de l’attente dans une foule bruyante l’indisposait. Et 
 n’était point le seul.
 
 Mais comme s’il avait lu dans les pensées du grand brun — où avait-il lui aussi
-senti quelque bruit caverneux émaner de son ventre — Roches expliqua :
+senti quelque bruit caverneux émaner de son ventre — Roches expliqua :
 
 — Je vais aller chercher le professeur Ōtori, après quoi nous irons déjeuner.
 
@@ -249,7 +249,7 @@ Une voix à l’accent saccadé venait de se faire entendre, tandis qu’un homm
 aux traits asiatiques mais à l’allure occidentale approchait du groupe
 d’officiers.
 
-— Professeur Ōtori ! Bonjour ! salua Roches, l’air enjoué.
+— Professeur Ōtori ! Bonjour ! salua Roches, l’air enjoué.
 
 — Que d’honneurs ! Monsieur Ōtori convient très bien ; c’est vous les
 professeurs, n’est-ce pas ?
@@ -291,7 +291,7 @@ visage recouvert d’une barbe qu’il avait peiné à tailler le long de la
 traversée jusqu’à Yokohama. Il regardait par-dessus son épaule, jetant un
 regard à Brunet qui lui accorda un sourire pincé.
 
-— Ça va ? demanda Fortant.
+— Ça va ? demanda Fortant.
 
 — Oui… J’ai grand faim.
 
@@ -308,21 +308,21 @@ s’affaler sur de banc en bois verni afin de ne pas perturber le confort de
 ses collègues. Fortant prit place en face de lui, rejoint par les autres
 membres de la mission française.
 
-— On a tous choisi un menu japonais ! Le contraire m’eût étonné ! lança un
+— On a tous choisi un menu japonais ! Le contraire m’eût étonné ! lança un
 collègue qui venait s’attabler à côté de Fortant.
 
 — Monsieur Ōtori a opté pour la purée de pommes de terres, dit un autre
 collègue qui prenait place aux côtés de Brunet, vous pensez que c’est par
-plaisir de partager notre culture ou bien parce que c’est une valeur sûre ?
+plaisir de partager notre culture ou bien parce que c’est une valeur sûre ?
 
 Un petit rire parcourut l’assistance. Brunet ne répondit que par un sourire
 aimable, le regard plissant alors qu’il avalait une cuillérée de soupe.
 
 C’était délicieux
 
-— Ça va, Brunet ? demanda le voisin de Fortant.
+— Ça va, Brunet ? demanda le voisin de Fortant.
 
-— Affamé et fatigué. Et toi, mon cher Marlin ?
+— Affamé et fatigué. Et toi, mon cher Marlin ?
 
 — Tout pareil ! Sus aux bonnes victuailles, comme disait ma tante.
 
@@ -361,7 +361,7 @@ Brunet. Ce sont même eux qui ont perdu à la bataille décisive de Sekigahara
 désormais de la position de faiblesse du Shōgun pour essayer de le renverser…
 
 — … Et tout cela en essayant de faire pression sur le Mikado pour qu’il 
-ordonne au Shōgun de démissionner ? demanda Fortant.
+ordonne au Shōgun de démissionner ? demanda Fortant.
 
 — C’est cela même, confirma Brunet.
 
@@ -370,7 +370,7 @@ nous, remarqua Bouffier.
 
 Marlin s’éclaircit à son tour la gorge avant d’établir un contact visuel avec
 ses voisins et de les inciter à se rapprocher afin de leur délivrer quelque
-confidence qui saurait être fâcheuse :
+confidence qui saurait être fâcheuse :
 
 — C’est l’ordre naturel des choses. Le Shõgun est un dictateur militaire et il
 n’est malheureusement pas possible de contenter tout le monde. On a choisi
@@ -389,7 +389,7 @@ Brunet leva la main en geste d’objection, la mine désolée.
 faille trop nous occuper de ce qui ne nous regarde pas. Je répondrai toutefois
 à la question avant d’avorter la discussion : si le Japon bascule sous
 l’autorité suprême de l’Empereur, il deviendra donc un Empire. Ce qui signifie
-conquêtes. Est-ce dans les intérêts des Britanniques ou des Hollandais ? Je
+conquêtes. Est-ce dans les intérêts des Britanniques ou des Hollandais ? Je
 l’ignore. Je pense qu’il s’agit de raisons économiques tout comme pour nous,
 même si les Britanniques ont préférer badiner avec les proimpéralistes qu’avec
 le Shōgun. Libre à vous de deviner pourquoi, mais je suis au regret de vous
@@ -462,7 +462,7 @@ l’auberge demain au petit matin.
 Chanoine gratifia discrètement Brunet d’une tape sur l’avant bras, tandis que
 ce dernier sourit franchement à son supérieur et aux autres. Avant d’être mené
 à sa chambre, il se présenta à Ōtori en ces termes, articulant pour que le
-japonais boive chacune des paroles de l’officier :
+japonais boive chacune des paroles de l’officier :
 
 — M. Ōtori, merci infiniment pour votre accueil et pour vous être occupés de
 nous. Je vais prendre congé. Il me tarde de travailler avec vous.

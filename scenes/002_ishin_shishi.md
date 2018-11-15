@@ -11,7 +11,7 @@ Mōri qui avait tenté d’imposer un *ultimatum* au *Mikado*.
 
 Sauf que le clan Shimazu était lui aussi proimpérialiste, et s’il avait
 combattu contre les Mōri auparavant, les deux clans avaient des buts communs,
-unis sous la même doctrine « Révérez l’Empereur, repoussez les barbares ».
+unis sous la même doctrine « Révérez l’Empereur, repoussez les barbares ».
 
 Barbares avec qui ils ne semblaient pas mécontents de badiner ce soir-là. Des
 samouraïs des clans Mōri et Shumazu se trouvaient en compagnie d’occidentaux,
@@ -41,7 +41,7 @@ bonne figure dans l’intérêt de leur clan respectif.
 — Je suis ravi que nous fassions affaire. avoua un samouraï à un commerçant
 qui, tournant la tête vers son interlocuteur, lui sourit.
 
-— Et moi, je suis convaincu que vous avez fait le bon choix. Je vous le redis :
+— Et moi, je suis convaincu que vous avez fait le bon choix. Je vous le redis :
 il est tant pour le Japon d’entrer dans une nouvelle ère !
 
 — Les sabres n’auront vraiment aucune utilité après que vous nous aurez cédé
@@ -61,7 +61,7 @@ un esprit hagard que les clans du Sud se mettaient dans la poche.
 Et puis au fond, eux aussi avaient attendu le moment opportun où le Shõgun se
 verrait contraint à céder à la volonté des puissances étrangères. Il était tout
 naturel de s’en remettre à des consultants occidentaux pour renverser le
-pouvoir militaire, quand bien même leur devise « Révérez l’Empereur, repoussez
-les barbares » ne semblait plus au goût du jour.
+pouvoir militaire, quand bien même leur devise « Révérez l’Empereur, repoussez
+les barbares » ne semblait plus au goût du jour.
 
 Ces fameux barbares, ils comptaient bien s’en servir.

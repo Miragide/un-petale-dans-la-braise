@@ -24,4 +24,4 @@ faut dire. Mais lui, ça a pris certaines proportions, je crois.
 — Tu m’étonnes, Bouffier, lança Marlin. Tu m’étonnes. Tous les dessins qu’il
 a faits, son excellent japonais, et le sérieux de ses élèves, aussi.
 
-— D’ailleurs, se risqua à demander Bouffier, où est Kintaro ?
+— D’ailleurs, se risqua à demander Bouffier, où est Kintaro ?

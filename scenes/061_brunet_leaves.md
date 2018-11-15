@@ -85,7 +85,7 @@ autant déconfite que lui.
 
 — Je viens avec vous, confia Kintaro.
 
-— Que dis-tu ?
+— Que dis-tu ?
 
 — Où que vous alliez, Monsieur Brunet, je vous suis. Je ne veux plus rester
 ici. Je ne veux pas mourir… Puisque je n’ai rien d’un samouraï et que, sans
@@ -94,7 +94,7 @@ Yokohama retrouver sa famille.
 
 — J’ai envoyé un billet au *Coëtlogon* qui stationne dans la baie de Hakodate
 pour observer le conflit. Si tout se passe comme prévu… Nous partons ce soir.
-Est-ce que cela te convient ?
+Est-ce que cela te convient ?
 
 Kintaro hocha silencieusement la tête.
 
