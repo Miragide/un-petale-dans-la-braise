@@ -1,4 +1,4 @@
-NAME = novel
+NAME = un-petale-dans-la-braise
 PANDOC = pandoc -s --number-sections
 
 PDF = $(NAME).pdf
